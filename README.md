@@ -2,7 +2,7 @@
 Summary of what this book will do goes here.
 
 ## Sections
-* [We create confidence](https://github.com/basecamp/handbook/blob/master/basecamp-is-you.md)
+* [We create confidence](https://github.com/andrewblackmon/culture/blob/master/we-create-confidence)
 * [What We Stand For](https://github.com/basecamp/handbook/blob/master/what-we-stand-for.md)
 * [What we do](https://github.com/basecamp/handbook/blob/master/what-influenced-us.md)
 * [5 year vision](https://github.com/basecamp/handbook/blob/master/vocabulary.md)
