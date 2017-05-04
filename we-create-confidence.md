@@ -1,3 +1,3 @@
-We create confidence
-founding story
+We create confidence  
+founding story  
 etc
