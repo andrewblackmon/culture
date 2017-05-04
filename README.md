@@ -1,25 +1,5 @@
- Skip to content
-This repository
-Search
-Pull requests
-Issues
-Gist
- @andrewblackmon
- Sign out
-You could lose access to your GitHub account
-You enabled two-factor authentication, but you haven’t viewed your recovery codes. If you lose your two-factor device, GitHub support will not be able to recover your account for you. Go to the two-factor authentication settings page to view and print your recovery codes.
- Watch 76
-  Star 1,620
- Fork 149 basecamp/handbook
- Code  Issues 0  Pull requests 0  Pulse  Graphs
-You’re editing a file in a project you don’t have write access to. Submitting a change to this file will write it to a new branch in your fork andrewblackmon/handbook, so you can send a pull request.
-handbook/ 
-README.md
-   or cancel
-    
- Edit file    Preview changes
-1
-# Basecamp Employee Handbook
+# The Black Tux Culture Book
+Summary of what this book will do goes here.
 
 ## Sections
 15
