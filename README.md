@@ -3,23 +3,23 @@ Summary of what this book will do goes here.
 
 ## Sections
 15
-* [Basecamp Is You](https://github.com/basecamp/handbook/blob/master/basecamp-is-you.md)
+* [We create confidence](https://github.com/basecamp/handbook/blob/master/basecamp-is-you.md)
 16
 * [What We Stand For](https://github.com/basecamp/handbook/blob/master/what-we-stand-for.md)
 17
-* [What Influenced Us](https://github.com/basecamp/handbook/blob/master/what-influenced-us.md)
+* [What we do](https://github.com/basecamp/handbook/blob/master/what-influenced-us.md)
 18
-* [Vocabulary](https://github.com/basecamp/handbook/blob/master/vocabulary.md)
+* [5 year vision](https://github.com/basecamp/handbook/blob/master/vocabulary.md)
 19
-* [Product Histories](https://github.com/basecamp/handbook/blob/master/product-histories.md)
+* [How we work together](https://github.com/basecamp/handbook/blob/master/product-histories.md)
 20
 * [Who Does What?](https://github.com/basecamp/handbook/blob/master/orgchart.md)
 21
-* [Where We Work](https://github.com/basecamp/handbook/blob/master/where-we-work.md)
+* [One company, 3 parts](https://github.com/basecamp/handbook/blob/master/where-we-work.md)
 22
-* [Benefits & Perks](https://github.com/basecamp/handbook/blob/master/benefits-and-perks.md)
+* [Feedback](https://github.com/basecamp/handbook/blob/master/benefits-and-perks.md)
 23
-* [Getting Started](https://github.com/basecamp/handbook/blob/master/getting-started.md)
+* [Who is our ideal customer?](https://github.com/basecamp/handbook/blob/master/getting-started.md)
 24
 * [How We Work](https://github.com/basecamp/handbook/blob/master/how-we-work.md)
 25
