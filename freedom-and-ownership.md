@@ -4,13 +4,7 @@ We have an understanding that as you’re given more freedom, you remain equally
 
 In support of our culture of trust, and in order for us all to make the best possible decisions for the company, we share sensitive and unfiltered information with everyone in the company. We can all view each other’s expense reports, budgets, and KPIs. We trust everyone to deal with and be in support of the good and bad news. When we have questions or concerns about the data and information being shared, we ask the  accountable experts in the company to avoid misinterpretation and distortion of information. 
 
-Our culture is not built on fear or suspicion, so there is no need to hide any “bad results” from one another. We all make mistakes, and we expect everyone to own up to these mistakes and find solutions to improve the situation. This approach forces us to grow and face  realty. 
-
-Purpose and Strategy
-
-We view the organization as a living system where we’re all working towards a higher purpose of helping people show up as their best. We believe in a sensing and responding approach rather than predicting and controlling method across all departments. We don’t believe in having strict long-term plans, targets, or budgets. Our strategy is to have a clear intent for where we’re going with an outline of guidelines of how we’ll get there. We believe that if we plan too much for the future, then we stop paying attention to reality of what is actually happening. 
-
-We’ve let go of the illusion of control. Instead, we’ve established a loose strategy that can be implemented quickly and improved at any point. By making fast iterations, we will progress much faster and smoothly toward our purpose. No energy is wasted predicting the supposedly best decision.
+Our culture is not built on fear or suspicion, so there is no need to hide any “bad results” from one another. We all make mistakes, and we expect everyone to own up to these mistakes and find solutions to improve the situation. This approach forces us to grow and face  reality. 
 
 Budgets and Expenses
 
