@@ -24,6 +24,8 @@ Job Descriptions
 
 Everyone in the company works towards expressing a higher purpose. Instead of job descriptions, every role has a purpose and accountabilities. An employee’s autonomy is protected and they are given freedom to do anything within the purpose of their role. They remain accountable to their team and the company as a whole. Everyone can take action on their own responsibilities as long as it doesn’t violate another's roles accountabilities.
 
+We all collaborate with one another regardless of title. We offer each other suggestions, and ideas, but we don’t over-step regarding other people’s accountabilities. We don’t have independent silos or suspicion between departments. We’re all in this together, and we support each other in our successes and failures.
+
 Meetings
 
 We discourage long and unproductive meetings. If you feel like a meeting is necessary, then try to keep it to no more than 30 min. If you’re hosting a meeting, provide an agenda to keep things timely and on track. The purpose of our meeting agendas are to help keep our egos in check, and interact with each other from a place of wholeness during meetings. 
