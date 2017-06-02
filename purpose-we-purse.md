@@ -1,4 +1,4 @@
-Things we value in people
+Things we value in our people
 
 Our culture and values.
 
