@@ -2,7 +2,7 @@ Emotional intelligence
 
 We bring our whole authentic selves to work and let everyone contribute in their own unique way.
 
-Everyone on the team, including managers, are expected to show up as their whole self and not just bring their “professional’ side. This means bringing your caring, authentic, and vulnerable sides to work, and always speaking the truth. By bringing this side of your personality, you will bring more passion, energy, and creativity to your work.
+Everyone on the team, including managers, are expected to show up as their whole self and not just bring their “professional’ side to work. This means bringing your caring, authentic, and vulnerable sides to work, and always speaking the truth. By bringing this side of your personality, you will bring more passion, energy, and creativity to your work.
  
 Everyone on our team has a high level of self-awareness and monitors their own emotions, preferences, limitations, strengths, and impulses. We use this information to guide our thinking and actions. We are all equals. We value each other's differences and points of view.
  
