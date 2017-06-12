@@ -1,5 +1,7 @@
 # The Black Tux Culture Book
-Summary of what this book will do goes here.
+We have a collective purpose. Everything we do is in an effort to help our employees and customers show up as their best.
+
+We operate on trust rather than fear. Our default is to trust our co-workers until proven wrong.
 
 ## Sections
 * [What we do](https://github.com/andrewblackmon/culture/blob/master/What-we-do.md)
