@@ -24,3 +24,10 @@ Our benefits package is generous and strategic. Each benefit makes good business
 
 Discounts for employee purchases. 
 
+Dogs
+
+In an effort to help our team members bring their whole selves to work, we allow well-behaved dogs to join their owners in the office.
+
+Confronting the brutal facts
+
+We will take a stance and action on human rights issues. The events of the world might seem distant, but we have a responsibility to stay educated, informed, curious, and compassionate about what is happening worldwide.
