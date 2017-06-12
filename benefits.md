@@ -18,3 +18,9 @@ We encourage people to form groups and take online courses, trainings, or read b
  
 Groups with more than 3 people will be required to host trainings and to give a talk about the new skills you’ve learned. This is not meant to test course completion. This process is informal and meant to encourage knowledge sharing and keep everyone curious and constantly learning new topics.  
  
+
+Our benefits package is generous and strategic. Each benefit makes good business sense for us. We offer comprehensive insurance. Lunches, snacks, etc. 
+
+
+Discounts for employee purchases. 
+
