@@ -13,5 +13,4 @@ Summary of what this book will do goes here.
 * [Budgets and expenses](https://github.com/andrewblackmon/culture/blob/master/budgets-and-expenses.md)
 * [Management philosophy](https://github.com/andrewblackmon/culture/blob/master/management-philosophy.md)
 * [Who does what](https://github.com/andrewblackmon/culture/blob/master/who-does-what.md)
-* [Departments](https://github.com/andrewblackmon/culture/blob/master/departments.md)
 * [If you're not the right fit](https://github.com/andrewblackmon/culture/blob/master/if-you're-not-the-right-fit.md)
