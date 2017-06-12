@@ -8,7 +8,7 @@ Summary of what this book will do goes here.
 * [Things we value in our people](https://github.com/andrewblackmon/culture/blob/master/things-we-value-in-our-people.md)
 * [Emotional intelligence](https://github.com/andrewblackmon/culture/blob/master/emotional-intelligence.md)
 * [Benefits](https://github.com/andrewblackmon/culture/blob/master/benefits.md)
-* [Budgets and Expenses](https://github.com/andrewblackmon/culture/blob/master/budgets-and-expenses.md)
+* [Budgets and expenses](https://github.com/andrewblackmon/culture/blob/master/budgets-and-expenses.md)
 * [How we work together](https://github.com/andrewblackmon/culture/blob/master/how-we-work-together.md)
 * [Management philosophy](https://github.com/andrewblackmon/culture/blob/master/management-philosophy.md)
 * [Who does what](https://github.com/andrewblackmon/culture/blob/master/who-does-what.md)
