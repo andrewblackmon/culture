@@ -1,11 +1,3 @@
-Freedom and ownership 
-
-We have an understanding that as you’re given more freedom, you remain equally accountable for your actions.
-
-In support of our culture of trust, and in order for us all to make the best possible decisions for the company, we share sensitive and unfiltered information with everyone in the company. We can all view each other’s expense reports, budgets, and KPIs. We trust everyone to deal with and be in support of the good and bad news. When we have questions or concerns about the data and information being shared, we ask the  accountable experts in the company to avoid misinterpretation and distortion of information. 
-
-Our culture is not built on fear or suspicion, so there is no need to hide any “bad results” from one another. We all make mistakes, and we expect everyone to own up to these mistakes and find solutions to improve the situation. This approach forces us to grow and face  reality. 
-
 Budgets and Expenses
 
 Our budgets are created to help guide us to where we want to go, but we can’t predict the future, and we constantly listen and adjust our budgets as strategies evolve. Our teams make rough quarterly predictions for the year and include expenses of large purchases such as softwares, materials, contracts, building leases, etc in their budgets. These budgets are used as an outline and can be improved at any point. When budgets are created and updated, we seek consultation and input from our team members who are impacted by these decisions. 
