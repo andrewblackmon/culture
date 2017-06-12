@@ -29,13 +29,3 @@ Learning
 We all make mistakes and work to learn from them. Failures should not be hidden, but discussed as a way for the group to learn how to avoid future pitfalls. Constructive feedback should not be taken as an affront, but as a guide for further personal growth.
  
 The key to success is learning from the ups and downs. We share with one another our struggles, failures, and sacrifices as these are the only way to make us stronger, more compassionate, and grateful at everything we do in life.
-
-Trainings and classes
-
-We encourage people to form groups and take online courses, trainings, or read books on something that they’d like to learn together. Learning with your team members will help motivate you and to provide alternative viewpoints on the subject manner. It also can be a great way to bond with your colleagues.
- 
-Groups with more than 3 people will be required to host trainings and to give a talk about the new skills you’ve learned. This is not meant to test course completion. This process is informal and meant to encourage knowledge sharing and keep everyone curious and constantly learning new topics.  
-
-Managing up
-
-No one can read your mind. It’s up to you to speak to your manager about your needs. Here are a few examples: if you want more responsibility, you’re running behind on a deadline, you’ve made a mistake, you’re unhappy with communication, you want mentorship, you want to learn a new skill, you need help, you want feedback on what you’re doing well or can improve. These are some of the topics that your manager wants to know about and can help you with.
