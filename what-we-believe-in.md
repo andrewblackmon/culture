@@ -1,10 +1,6 @@
 What we believe in
 
 We have a collective purpose. Everything we do is in an effort to help our company grow.
-
-Who we hire
-
-Our employees our motivated by their own drive to produce excellent work and to make the company great. They do not need their hands held by managers, but use their intrinsic skills to achieve greatness. Though they are extraordinary in and outside of work, their egos are kept in check, and they could care less about being in the limelight. 
  
 Management 
 
