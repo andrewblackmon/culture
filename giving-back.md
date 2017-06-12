@@ -1,7 +1,3 @@
-What we believe in
-
-We have a collective purpose. Everything we do is in an effort to help our employees and customers show up as their best. 
-
 Giving back
 
 We donate all of our retired garments to local schools and nonprofits that support underserved youth. These retired garments are in excellent condition with hardly any noticeable wear and tear. We believe that everyone should look their best regardless of income, whether they're headed to their first job interview, formal event, prom, or wedding.
