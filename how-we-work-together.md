@@ -39,7 +39,7 @@ Meetings
 
 We discourage long and unproductive meetings. If you feel like a meeting is necessary, then try to keep it to no more than 30 min. If you’re hosting a meeting, provide an agenda to keep things timely and on track. The purpose of our meeting agendas are to help keep our egos in check, and interact with each other from a place of wholeness during meetings. 
 
-Start your meetings with a round of check-ins to see how everyone is feeling that day. This allows acknowledgement of unspoken emotions - the excitement, concerns, stress, etc. This practice encourages us to be vulnerable and honest with each other. Below are some examples of how to start check-ins: 
+Start your meetings with a round of check-ins to see how everyone is feeling that day. This allows acknowledgement of unspoken emotions - the excitement, concerns, stress, etc. This practice encourages us to be vulnerable and honest with each other. Here are some examples of how to start check-ins: 
 Share a brief story of someone you recently thanked or congratulated. 
 Share a story of a mistake or mess up you made in or outside of work. 
 Ask everyone to share a joke, or something embarrassing or funny that happened to them recently. 
