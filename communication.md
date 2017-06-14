@@ -1,4 +1,4 @@
-Emotional intelligence
+Communicating with Emotional Intelligence
 
 We bring our whole authentic selves to work and let everyone contribute in their own unique way.
 
