@@ -1,5 +1,5 @@
 Communicating with Emotional Intelligence  
-We bring our whole authentic selves to work and let everyone contribute in their own unique way. Everyone on the team, including managers, are encouraged to show up as their whole self and not just bring their “professional’ side to work. This means bringing your caring, authentic, and vulnerable sides to work, and always speaking the truth. By bringing this side of your personality, we believe you will bring more passion, energy, and creativity to your work.
+We bring our whole authentic selves to work and let everyone contribute in their own unique way. Everyone on the team, including leaders, are encouraged to show up as their whole self and not just bring their “professional’ side to work. This means bringing your caring, authentic, and vulnerable sides to work, and always speaking the truth. By bringing this side of your personality, we believe you will bring more passion, energy, and creativity to your work.
  
 We believe in communcating with a high level of self-awareness by monitoring our own emotions, preferences, limitations, strengths, and impulses. We use this information to guide our thinking and actions. We are all equals. We value each other's differences and points of view.
 
@@ -7,7 +7,6 @@ Candid honesty
 We practice candid honesty with each other. Being truthful and straightforward is the only way to know where we stand, what we’re doing well, and what we can improve on. Honesty will ensure the success of our own individual growth and the success of the company. 
  
 If we aren’t honest with each other, then we’ll miss out on exchanging great ideas, hearing one anothers’ perspectives, improving ourselves, and understanding on another's needs.
-
 
 Feedback and Conflict Resolution  
 We focus on self-improvement. We own our viewpoints, thoughts, and actions. We don’t speak about our colleagues without them in the room, or spread ill thoughts about them. Conflicts are handled between those involved, and don’t involve unnecessary parties. Rather than blaming others, we consider how we have contributed to the conflict, and how we might work to improve the situation.
