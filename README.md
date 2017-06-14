@@ -7,7 +7,6 @@ We operate on trust rather than fear. Our default, is to trust our co-workers un
 * [What we do](https://github.com/andrewblackmon/culture/blob/master/What-we-do.md)
 * [The foundation of our culture](https://github.com/andrewblackmon/culture/blob/master/the-foundation-of-our-culture.md)
 * [Values we look for in our people](https://github.com/andrewblackmon/culture/blob/master/values-we-look-for.md)
-* [Things we value in our people](https://github.com/andrewblackmon/culture/blob/master/things-we-value-in-our-people.md)
 * [Communication](https://github.com/andrewblackmon/culture/blob/master/communication.md)
 * [How we work together](https://github.com/andrewblackmon/culture/blob/master/how-we-work-together.md)
 * [Benefits](https://github.com/andrewblackmon/culture/blob/master/benefits.md)
