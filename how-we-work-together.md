@@ -6,6 +6,11 @@ In support of our culture of trust, and in order for us all to make the best pos
 
 Our culture is not built on fear or suspicion, so there is no need to hide any “bad results” from one another. We all make mistakes, and we expect everyone to own up to these mistakes and find solutions to improve the situation. This approach forces us to grow and face  reality. 
 
+Learning  
+We all make mistakes and work to learn from them. Failures should not be hidden, but discussed as a way for the group to learn how to avoid future pitfalls. Constructive feedback should not be taken as an affront, but as a guide for further personal growth.
+ 
+The key to success is learning from the ups and downs. We share with one another our struggles, failures, and sacrifices as these are the only way to make us stronger, more compassionate, and grateful at everything we do in life.
+
 Job Descriptions
 
 Everyone in the company works towards expressing a higher purpose. Instead of job descriptions, every role has a purpose and accountabilities. An employee’s autonomy is protected and they are given freedom to do anything within the purpose of their role. They remain accountable to their team and the company as a whole. Everyone can take action on their own responsibilities as long as it doesn’t violate another's roles accountabilities.
