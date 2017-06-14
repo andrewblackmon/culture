@@ -3,7 +3,7 @@ Our benefits package is generous and strategic. Each benefit we offer makes good
 
 ADD - we offer comprehensive insurance plans for employees and their dependents. 
 
-ADD - 401(k), Snacks and beverages, employee events, Friday lunches. 
+ADD - 401(k), Snacks and beverages, employee events, Friday lunches, dry cleaning and tailoring, paid parking. 
 
 Culture initiatives
 
