@@ -16,8 +16,3 @@ Disagreements can arise from a personal conflicts, job performance, technical de
 During your conversation, we ensure that our feedback is coming from a place of good intentions, and we remain direct and to the point. We start by stating: how we feel, what we need, and then we ask our team member what they need. We stay calm, keep it conversational, and are never accusatory, demeaning, or condescending. 
 
 If you can’t find a resolution after your conversation, then bring in a trusted manager, colleague, or someone from the Talent team as a mediator. If mediation fails, bring in a different topic-relevant colleague or a manager to help shape an agreement. 
-
-Learning  
-We all make mistakes and work to learn from them. Failures should not be hidden, but discussed as a way for the group to learn how to avoid future pitfalls. Constructive feedback should not be taken as an affront, but as a guide for further personal growth.
- 
-The key to success is learning from the ups and downs. We share with one another our struggles, failures, and sacrifices as these are the only way to make us stronger, more compassionate, and grateful at everything we do in life.
