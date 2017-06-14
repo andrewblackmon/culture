@@ -1,6 +1,6 @@
 Our leaders 
 
-We have leadrers at TBT, but in reality everyone self-manages. Employees are able to do this because they care about their work, are experts at their job, know their teammates jobs as well, and are working towards TBTs higher purpose. If one day a leader were to go out on leave, anyone on their team would be able to take over and run the department. 
+We have leaders at TBT, but in reality everyone self-manages. Employees are able to do this because they care about their work, are experts at their job, know their teammates jobs as well, and are all working towards TBTs higher purpose. If one day a leader were to go out on leave, anyone on their team would be able to take over and run the department. 
 
 We have an unofficial hierarchy of credibility, which springs from experience, trust, communication, and a host of other factors. Aspects of work are owned by particular roles. Ownership, is not about exclusively controlling a role, but a privilege and responsibility to serve the company. Certain roles are specific domains, others are shared by many roles within a circle, while others are unassigned, and we all impact them together.  
 
