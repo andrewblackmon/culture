@@ -6,7 +6,7 @@ You will see that building confidence is a major theme in this document. Everyth
 
 ## Sections
 * [Purpose, Vision, Mission](https://github.com/andrewblackmon/culture/blob/master/purpose-vision-mission.md.md)
-* [The foundation of our culture](https://github.com/andrewblackmon/culture/blob/master/the-foundation-of-our-culture.md)
+* [The foundation that creates our values](https://github.com/andrewblackmon/culture/blob/master/the-foundation-of-our-culture.md)
 * [Values we look for in our people](https://github.com/andrewblackmon/culture/blob/master/values-we-look-for.md)
 * [Communication](https://github.com/andrewblackmon/culture/blob/master/communication.md)
 * [How we work together](https://github.com/andrewblackmon/culture/blob/master/how-we-work-together.md)
