@@ -5,7 +5,7 @@ Culture encompasses what we do, why we do it, and how we work together. The Blac
 You will see that building confidence is a major theme in this document. Everything we do is in an effort to help our employees and customers show up as their best.  
 
 ## Sections
-* [What we do](https://github.com/andrewblackmon/culture/blob/master/What-we-do.md)
+* [What we do](https://github.com/andrewblackmon/culture/blob/master/what-we-do.md)
 * [The foundation of our culture](https://github.com/andrewblackmon/culture/blob/master/the-foundation-of-our-culture.md)
 * [Values we look for in our people](https://github.com/andrewblackmon/culture/blob/master/values-we-look-for.md)
 * [Communication](https://github.com/andrewblackmon/culture/blob/master/communication.md)
