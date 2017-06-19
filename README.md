@@ -5,11 +5,11 @@ Culture encompasses what we do, why we do it, and how we work together. The Blac
 You will see that building confidence is a major theme in this document. Everything we do is in an effort to help our employees and customers show up as their best.  
 
 ## Sections
-* [Purpose, Vision, Mission](https://github.com/andrewblackmon/culture/blob/master/purpose-vision-mission.md)
-* [The foundation that creates our values](https://github.com/andrewblackmon/culture/blob/master/the-foundation-of-our-culture.md)
-* [Values we look for in our people](https://github.com/andrewblackmon/culture/blob/master/values-we-look-for.md)
-* [Communication](https://github.com/andrewblackmon/culture/blob/master/communication.md)
+* [What we do & Why we do it](https://github.com/andrewblackmon/culture/blob/master/purpose-vision-mission.md)
+* [The foundation of How](https://github.com/andrewblackmon/culture/blob/master/the-foundation-of-our-culture.md)
 * [How we work together](https://github.com/andrewblackmon/culture/blob/master/how-we-work-together.md)
+* [How we communicate](https://github.com/andrewblackmon/culture/blob/master/communication.md)
+* [Values we look for in our team](https://github.com/andrewblackmon/culture/blob/master/values-we-look-for.md)
 * [Benefits](https://github.com/andrewblackmon/culture/blob/master/benefits.md)
 * [Giving back](https://github.com/andrewblackmon/culture/blob/master/giving-back.md)
 * [Budgets and expenses](https://github.com/andrewblackmon/culture/blob/master/budgets-and-expenses.md)
