@@ -15,4 +15,5 @@ You will see that building confidence is a major theme in this document. Everyth
 * [Giving back](https://github.com/andrewblackmon/culture/blob/master/giving-back.md)
 * [Budgets and expenses](https://github.com/andrewblackmon/culture/blob/master/budgets-and-expenses.md)
 * [Who does what](https://github.com/andrewblackmon/culture/blob/master/who-does-what.md)
+* [Other details](https://github.com/andrewblackmon/culture/blob/master/other-details.md)
 * [If you're not the right fit](https://github.com/andrewblackmon/culture/blob/master/if-you're-not-the-right-fit.md)
