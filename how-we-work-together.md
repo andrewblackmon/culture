@@ -11,12 +11,6 @@ We all make mistakes and work to learn from them. Failures should not be hidden,
  
 The key to success is learning from the ups and downs. We share with one another our struggles, failures, and sacrifices as these are the only way to make us stronger, more compassionate, and grateful at everything we do in life.
 
-Job Descriptions
-
-Everyone in the company works towards expressing a higher purpose. Instead of job descriptions, every role has a purpose and accountabilities. An employee’s autonomy is protected and they are given freedom to do anything within the purpose of their role. They remain accountable to their team and the company as a whole. Everyone can take action on their own responsibilities as long as it doesn’t violate another's roles accountabilities.
-
-We all collaborate with one another regardless of title. We offer each other suggestions, and ideas, but we don’t over-step regarding other people’s accountabilities. We don’t have independent silos or suspicion between departments. We’re all in this together, and we support each other in our successes and failures.
-
 Purpose and Strategy
 
 We view the organization as a living system where we’re all working towards a higher purpose of helping people show up as their best. We believe in a sensing and responding approach rather than predicting and controlling method across all departments. We don’t believe in having strict long-term plans, targets, or budgets. Our strategy is to have a clear intent for where we’re going with an outline of guidelines of how we’ll get there. We believe that if we plan too much for the future, then we stop paying attention to reality of what is actually happening.By making fast iterations, we will progress much faster and smoothly toward our purpose. 
@@ -34,15 +28,3 @@ We never put each other down, or complain without providing an alternative solut
 Responsibility and accountability
 
 Our duty extends beyond our own roles to how our actions can benefit the company as a whole. If others are not upholding their roles, we need to respectfully encourage them to continue to work for the collective benefit.
-
-Meetings
-
-We discourage long and unproductive meetings. If you feel like a meeting is necessary, then try to keep it to no more than 30 min. If you’re hosting a meeting, provide an agenda to keep things timely and on track. The purpose of our meeting agendas are to help keep our egos in check, and interact with each other from a place of wholeness during meetings. 
-
-Start your meetings with a round of check-ins to see how everyone is feeling that day. This allows acknowledgement of unspoken emotions - the excitement, concerns, stress, etc. This practice encourages us to be vulnerable and honest with each other. Here are some examples of how to start check-ins: 
-Share a brief story of someone you recently thanked or congratulated. 
-Share a story of a mistake or mess up you made in or outside of work. 
-Ask everyone to share a joke, or something embarrassing or funny that happened to them recently. 
-Ask fun random questions to get to know each other. 
-
-Try to be on time for all meetings. If you’re late for a meeting, notify the meeting host ASAP to let them know. During the meeting, please be engaged and refrain from checking your phone or computer or working on other things not related to the meeting topics. At the conclusion of each meeting, review and assign action items. 
