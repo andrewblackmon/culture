@@ -10,7 +10,7 @@ People who want to explore everything.
 We are curious, and embrace the uncertainty that comes with taking risks and opening ourselves up to new approaches and experiences. We’re not interested in how it’s always been done, we care more about the best way to do it. We are nimble, quick to react, and willing to change our minds. We take pride in our resourcefulness, and apply creative and original thought to every problem. Learning is our natural state; true understanding is our north star.
 
 People who are human.  
-We treat people the way we want to be treated. We’re slow to judge. We have empathy and value our differences. We’re fair and consistent.
+We treat people the way we want to be treated. We’re slow to judge. We practice patience in everything we do. We have empathy and value our differences. We’re fair and consistent.
 
 People who communicate openly.  
 We’re honest with each other and ourselves. (Direct feedback is a form of honesty. So is saying what you believe). This builds trust and encourages transparency, which allow us to feel safe. We provide context before jumping into the details.
