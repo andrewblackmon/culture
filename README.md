@@ -1,6 +1,6 @@
 # The Black Tux Culture Book  
   
-Culture encompasses what we do, why we do it, and how we work together. The Black Tux has not had a written culture for the last 4 years - It has largely been a reflection of the values of the founding team and early team members. This document is our first attempt to put some words and clarity to these values and ideas. Our goal is that this document will help all of us navigate important decisions with greater alignment and consistency. As we continue to evolove as an organization, so will parts of this document.  
+Culture encompasses what we do, why we do it, and how we work together. The Black Tux has not had a written culture for the last 4 years - it has largely been a reflection of the values of the founding team and early team members. This document is our first attempt to put some words and clarity around what our values and ideas truely are. Our goal is that this document will help all of us navigate important decisions with greater alignment and consistency. As we continue to evolove as an organization, so will parts of this document.  
   
 You will see that building confidence is a major theme in this document. Everything we do is in an effort to help our employees and customers show up as their best.  
 
