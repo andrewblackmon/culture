@@ -17,4 +17,5 @@ You will see that building confidence is a major theme in this document. Everyth
 * [Who does what](https://github.com/andrewblackmon/culture/blob/master/who-does-what.md)
 * [Other details](https://github.com/andrewblackmon/culture/blob/master/other-details.md)
 * [Suggested readings](https://github.com/andrewblackmon/culture/blob/master/suggested-readings.md)
+* [FAQ](https://github.com/andrewblackmon/culture/blob/master/FAQ.md)
 * [If you're not the right fit](https://github.com/andrewblackmon/culture/blob/master/if-you're-not-the-right-fit.md)
