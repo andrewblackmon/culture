@@ -1,9 +1,43 @@
  
-Our benefits package is generous and strategic. Each benefit we offer makes good business sense for us, and our team members. We are thoughtful about every event, perk, class, and benefit we offer, and we only roll out meaningful perks that are in line with our culture and values. 
+Our benefits package is generous and strategic. Each benefit we offer is in the best interest of TBT and our team members. We are thoughtful and strategic about every event, perk, class, and benefit we offer, and we only roll out meaningful perks that are in line with our company culture and values.
 
-ADD - we offer comprehensive insurance plans for employees and their dependents. 
+Health Benefits 
 
-ADD - 401(k), Snacks and beverages, employee events, Friday lunches, dry cleaning and tailoring, paid parking. 
+We offer comprehensive insurance plans for employees and their dependents. This includes medical, dental, vision, life insurance, and short-term disability coverage. We cover 100% of the employee monthly premium cost for health and dental HMO plans. 
+
+Other details: 
+* Our health plans are effective on the 1st day of the month following your start date. 
+* Open enrollment is in October or November every year. 
+* Domestic partners may have coverage under all of our health plans. 
+
+Heath Insurance
+* Kaiser HMO 20: 100% covered for individual and 50% for dependents
+* Blue Shield HMO 20: 85% covered for individual and 50% for dependents
+* Blue Shield PPO 500: Buy up option from BSCA HMO Plan
+ 
+Dental Insurance
+* Cigna Dental PPO: 100% covered for individual and 50% for dependents
+ 
+Life Insurance and Short-Term Disability
+* $50,000 covered by The Black Tux
+* Weekly benefit of 60% of your earnings for up to 12 weeks covered by The Black Tux
+
+Vision
+* Cigna Vision offered at $2.96 per month for employee only coverage
+
+401(k) 
+
+401(k)s are one of the best ways to save for your retirement. It’s only available through your employer. It’s tax-advantaged and allows you to contribute pre-tax dollars to stocks and bonds. By saving money in a 401(k), your money will be able to grow tax-deferred, meaning the money you invest now has an even better chance to grow over time. 
+
+We provide a 401(k) plan through Betterment. Betterment is an easy to use online service that helps with fund allocation for your 401(k) investments. TBT covers the admin fees for everyone who participates in the plan. 
+
+We auto enroll all employees to defer 3% of their salary per pay check. However, you can change your deferral amount, or decline to participate in the plan at anytime by accessing your online Betterment account. It will just take 1 pay cycle for the contribution change to take effect within payroll. 
+
+Any money that is contributed into your Betterment account will remain in your 401(k) until you reach 59 1/2. If it is withdrawn before age 59 1/2, you will incur a withdrawal penalty. Money deposited into a 401(k) account can not be refunded by the Company into your pay check. Remember that TBT is offering this 401(k) plan as a perk to its employees because we want to help you save, and the Company, in no way, benefits from your contributions.
+
+It has an annual contribution limit of $18,000 per year. There is an additional $6,000 catch-up contribution available if the employee is 50 or older 
+
+ADD - Snacks and beverages, employee events, Friday lunches, dry cleaning and tailoring, paid parking. 
 
 Culture initiatives
 
