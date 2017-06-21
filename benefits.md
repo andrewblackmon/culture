@@ -45,12 +45,7 @@ Every Friday, we order lunch for the team from local restaurants. Send us your r
 Snacks and beverages
 We offer complimentary beverages and snacks so you won’t go hungry during the day. 
 
-
-
 ADD - dry cleaning and tailoring, paid parking. 
-
-
-
 
 Culture initiatives
 
