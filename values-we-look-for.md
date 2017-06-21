@@ -1,4 +1,4 @@
-It is very important that we find and create a team of people who fundamtntally share our core beliefs. Here are the qualities of the people who fit best in our organization. These are the things we use to make hiring, firing and promotion decisions based on.
+It is very important that we find and create a team of people who fundamtntally share our core beliefs. Here are the qualities of the people who we have found align with best with our cultural vision. These are the values hiring, firing and promotion decisions based on.
 
 People with a sense of ownership.  
 We honor commitments to each other and our customers. We know our stuff, and if we don’t, we know that too. We ask questions to fully understand what’s required, step up to address issues, and lend a hand where needed. But at the end of the day we answer for our own actions. We see things through.
@@ -16,4 +16,4 @@ People who communicate openly.
 We’re honest with each other and ourselves. (Direct feedback is a form of honesty. So is saying what you believe). This builds trust and encourages transparency, which allow us to feel safe. We provide context before jumping into the details.
 
 People who are interesting.  
-We’re not afraid to be ourselves. We don’t take ourselves too seriously. We accept other people's quirkiness as much as our own.
+We’re not afraid to be ourselves. We don’t take ourselves too seriously. We varied interests in and outside of the workplace.
