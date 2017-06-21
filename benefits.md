@@ -37,7 +37,20 @@ Any money that is contributed into your Betterment account will remain in your 4
 
 It has an annual contribution limit of $18,000 per year. There is an additional $6,000 catch-up contribution available if the employee is 50 or older 
 
-ADD - Snacks and beverages, employee events, Friday lunches, dry cleaning and tailoring, paid parking. 
+Perks 
+
+Friday lunch 
+Every Friday, we order lunch for the team from local restaurants. Send us your restaurant recommendations! We try to cater for all types of dietary restrictions. It’s provided to make us more efficient and unify the team. We encourage everyone to all eat together in the common area, and to try to sit with new team members to get to know everyone in the company. We want everyone to learn what each other is working on, and who they are on a personal level.
+
+Snacks and beverages
+We offer complimentary beverages and snacks so you won’t go hungry during the day. 
+
+
+
+ADD - dry cleaning and tailoring, paid parking. 
+
+
+
 
 Culture initiatives
 
