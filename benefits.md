@@ -1,5 +1,5 @@
  
-Our benefits package is generous and strategic. Each benefit we offer is in the best interest of TBT and our team members. We are thoughtful and strategic about every event, perk, class, and benefit we offer, and we only roll out meaningful perks that are in line with our company culture and values.
+Each benefit we offer is in the best interest of TBT and our team members. We are thoughtful and strategic about every event, perk, class, and benefit we offer, and we only roll out meaningful perks that are in line with our company culture and values.
 
 Health Benefits 
 
