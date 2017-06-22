@@ -27,9 +27,9 @@ Vision
 
 **401(k)** 
 
-401(k)s are one of the best ways to save for your retirement. It’s only available through your employer. It’s tax-advantaged and allows you to contribute pre-tax dollars to stocks and bonds. By saving money in a 401(k), your money will be able to grow tax-deferred, meaning the money you invest now has an even better chance to grow over time. 
-
 We provide a 401(k) plan through Betterment. Betterment is an easy to use online service that helps with fund allocation for your 401(k) investments. TBT covers the admin fees for everyone who participates in the plan. 
+
+401(k)s are one of the best ways to save for your retirement. It’s only available through your employer, and it’s tax-advantaged and allows you to contribute pre-tax dollars to stocks and bonds. By saving money in a 401(k), your money will be able to grow tax-deferred, meaning the money you invest now has an even better chance to grow over time. 
 
 We auto enroll all employees to defer 3% of their salary per pay check. However, you can change your deferral amount, or decline to participate in the plan at anytime by accessing your online Betterment account. It will just take 1 pay cycle for the contribution change to take effect within payroll. 
 
@@ -37,21 +37,40 @@ Any money that is contributed into your Betterment account will remain in your 4
 
 It has an annual contribution limit of $18,000 per year. There is an additional $6,000 catch-up contribution available if the employee is 50 or older 
 
-# **Perks** 
+**Perks** 
 
 Friday lunch 
 Every Friday, we order lunch for the team from local restaurants. Send us your restaurant recommendations! We try to cater for all types of dietary restrictions. It’s provided to make us more efficient and unify the team. We encourage everyone to all eat together in the common area, and to try to sit with new team members to get to know everyone in the company. We want everyone to learn what each other is working on, and who they are on a personal level.
 
-Snacks and beverages
-We offer complimentary beverages and snacks so you won’t go hungry during the day. 
+**Snacks and beverages**
+We offer complimentary beverages and snacks so you won’t go hungry during the day, or have to make another trip to the store during the day.  
 
-ADD - dry cleaning and tailoring, paid parking. 
+**Dry cleaning and tailoring** 
+We offer dry cleaning and tailoring services to everyone on the team. By brining it in-house, we hope to eliminate one less chore for you to worry about outside of work, help you save on costs, and help you take care of your clothes, so you feel your best! 
 
-# **Culture initiatives**
+We'll dry clean and tailor any of your casual clothing items, shirts, pants, jackets, blazers, suits, casual dresses, etc. We just won't be able to do this for your home goods, extravegant clothing, or your family and friends clothing items. You'll need to cover the cost of these fancy items on your own, and bring them to a dry cleaner of your choice. Think of it this way, if you were to bring in a ball gown or bed comforter to the dry cleaners on your own, you know it would be much more expensive than doing it for a simple button down shirt. 
+
+We know you'll use your best judgement here. 
+
+**Paid parking**
+Santa Monica is a crowded city, and parking in the area can be somewhat of nightmare. Almost all parking near our office locations are paid parking lots. For anyone on the team who's working out of the Santa Monica offices, you'll be reimbursed for your pakring or LA public metro transportaion costs of up to a max of $10 per day. 
+
+We hope this helps to make your commute and parking woes a little less painful. 
+
+**Cell Phone Reimbursement**
+We provide our regular full-time salaried team members a monthly cell phone reimbursement of up to $60 per month. We do this since we don't have desk phones, and we're frequently on our phones communicating with team members when we're outside of the office. 
+
+We don't offer this reimbursement to everyone on the team, since there are certain roles that don't require as frequent communication once you're out of the office. Every role in the company has different job requirements, and depdending on your responsibilities, it may not be necessary for you to access your email or phone while outside of work.
+
+**Employee Discounts**
+
+
+
+**Culture initiatives**
 
 In support of empowering people to show up as their best, we roll out different initiatives that help to reinforce our cultural ideals. You can check out a list of our current culture initiatives here: https://docs.google.com/a/theblacktux.com/document/d/1WsGpyiGWMF71KqwpSVu2rXQT--crjVZ--GBzclX_Mp8/edit?usp=sharing 
 
-# **Flexible work hours**
+**Flexible work hours**
  
 We don’t focus on how many extra hours and days you work. We hire everyone to be efficient with their time and get their work done, so that there are no negative impacts on others. We are working here to make the company successful, and we support each other in every obstacle, struggle, and triumph. In times of urgency, you may need to stay late, or work on a weekend day. We take care of our people and will never abuse this, but we expect you to understand that putting in this extra time may be necessary.
  
@@ -59,16 +78,20 @@ If you feel you’re more productive working from home every once in awhile, the
  
 We’re flexible with people taking time off to enjoy life! We take a responsible amount of time off each year to experience new adventures, relax, or spend time with loved ones. Everyone’s reasons for needing time off are their own, we just ask that you let your manager and team members know and get your work covered while you’re out. We use our best judgement to know how much time off is too much time off. We all love our freedom and we never abuse this privilege. 
  
-# **Trainings and classes**
+**Trainings and classes**
  
 We encourage people to form groups and take online courses, trainings, or read books on something that they’d like to learn together. Learning with your team members will help motivate you and to provide alternative viewpoints on the subject manner. It also can be a great way to bond with your colleagues.
  
 Groups with more than 3 people will be required to host trainings and to give a talk about the new skills you’ve learned. This is not meant to test course completion. This process is informal and meant to encourage knowledge sharing and keep everyone curious and constantly learning new topics.  
 
-# **Dogs**
+**Dogs**
 
-In an effort to help our team members bring their whole selves to work, we allow well-behaved dogs to join their owners in the office. For more details about this, our doggie owners can check out our Playbook. 
+In an effort to help our team members bring their whole selves to work, we allow well-behaved dogs to join their owners in the Santa Monica office. Just make sure your dog is safe for a work enviornment, they're not left to wander around the office on their own, they're potty trained, and they aren't frequently crying, growling, or barking in the office. 
 
-# **Confronting the brutal facts**
+As a dog owner, you sometimes tune out your own pups noises and personality quarks, but keep in mind that it's not always easy for your team members to do the same. Try putting yourself in someone elses shoes, if your dog is frequently making loud noises, then they might not be the right fit to be in the office. Remain objective and use your best judgement here. Think of it like a crying baby sitting next to you on the airplane. You feel bad for the baby, and for the parent caring for the child, but the loud crying noises and screams in your ear isn't the most relaxing experience for you to listen to on your flight. 
+
+For more details about this, our doggie owners can check out our Playbook. 
+
+**Confronting the brutal facts**
 
 We take a stance and action on human rights issues. The events of the world might seem distant, but we have a responsibility to stay educated, informed, curious, and compassionate about what is happening worldwide. In an effort to stay current and active, we have employee-run groups and culture initiatives that focus on environmental issues, human rights, diversity, LGBTQ rights, animal rights, health, immigrant rights, unconscious biases, womens rights and much more. 
