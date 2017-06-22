@@ -1,31 +1,47 @@
 Books 
 
 Health and Emotional Intelligence
+
 Great Thinkers - The School of Life 
+
 The power of now - Eckhart Tolle 
+
 The four agreements - Don Miguel Ruiz 
+
 The Untethered Soul - Michael Singer 
+
 Search Inside Yourself - Chade-Meng Tan 
+
 10% Happier - Dan Harris 
+
 The Power of Habit - Charles Duhigg 
 
 Leadership 
+
 Creativity Inc - Ed Catmull 
+
 Drive - Daniel Pink 
+
 Give and take - Adam Grant 
 
 Entrepreneurship
-Start something that matters 
+
 The Lean Startup - Eric Ries 
+
 Zero to one - Peter Thiel 
-Orginals -Adam Grant 
+
+Orginals: How Non-Conformists Move the World - Adam Grant 
 
 Company Culture 
-Reinventing Organizations - Frederic Laloux 
-Let my people go surfing - Yvon Chouinard 
-Start with why - Simon Sinek 
+
+Reinventing Organizations - Frederic Laloux
+
+Let My People Go Surfing - Yvon Chouinard 
+
+Start With Why - Simon Sinek 
 
 Financial 
+
 I Will Teach You To Be Rich - Ramit Sethi 
 
 Videos 
