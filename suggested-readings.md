@@ -1,7 +1,7 @@
 ## **Books** 
 
 
-# **Health and Emotional Intelligence**
+**Health and Emotional Intelligence**
 
 Great Thinkers - The School of Life 
 
@@ -19,7 +19,7 @@ The Power of Habit - Charles Duhigg
 
 
 
-# **Leadership** 
+**Leadership** 
 
 Creativity Inc - Ed Catmull 
 
@@ -39,7 +39,7 @@ Orginals: How Non-Conformists Move the World - Adam Grant
 
 
 
-# **Company Culture** 
+**Company Culture** 
 
 Reinventing Organizations - Frederic Laloux
 
@@ -49,7 +49,7 @@ Start With Why - Simon Sinek
 
 
 
-# **Financial** 
+**Financial** 
 
 I Will Teach You To Be Rich - Ramit Sethi 
 
