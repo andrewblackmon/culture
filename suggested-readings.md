@@ -29,7 +29,7 @@ Give and take - Adam Grant
 
 
 
-# **Entrepreneurship**
+**Entrepreneurship**
 
 The Lean Startup - Eric Ries 
 
