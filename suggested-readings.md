@@ -18,6 +18,7 @@ Search Inside Yourself - Chade-Meng Tan
 The Power of Habit - Charles Duhigg 
 
 
+
 Leadership 
 
 Creativity Inc - Ed Catmull 
@@ -25,6 +26,7 @@ Creativity Inc - Ed Catmull
 Drive - Daniel Pink 
 
 Give and take - Adam Grant 
+
 
 
 Entrepreneurship
@@ -36,6 +38,7 @@ Zero to one - Peter Thiel
 Orginals: How Non-Conformists Move the World - Adam Grant 
 
 
+
 Company Culture 
 
 Reinventing Organizations - Frederic Laloux
@@ -45,9 +48,11 @@ Let My People Go Surfing - Yvon Chouinard
 Start With Why - Simon Sinek 
 
 
+
 Financial 
 
 I Will Teach You To Be Rich - Ramit Sethi 
+
 
 
 Videos 
@@ -75,6 +80,7 @@ https://www.youtube.com/watch?v=4VdO7LuoBzM
 
 Why good leaders make you feel safe? - Simon Sinek 
 https://www.ted.com/talks/simon_sinek_why_good_leaders_make_you_feel_safe
+
 
 
 Podcasts 
