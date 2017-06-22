@@ -1,7 +1,7 @@
-**Books** 
+### **Books** 
 
 
-Health and Emotional Intelligence
+**Health and Emotional Intelligence**
 
 Great Thinkers - The School of Life 
 
@@ -19,7 +19,7 @@ The Power of Habit - Charles Duhigg
 
 
 
-Leadership 
+**Leadership** 
 
 Creativity Inc - Ed Catmull 
 
@@ -39,7 +39,7 @@ Orginals: How Non-Conformists Move the World - Adam Grant
 
 
 
-Company Culture 
+**Company Culture** 
 
 Reinventing Organizations - Frederic Laloux
 
@@ -49,13 +49,13 @@ Start With Why - Simon Sinek
 
 
 
-Financial 
+**Financial** 
 
 I Will Teach You To Be Rich - Ramit Sethi 
 
 
 
-Videos 
+**Videos** 
 
 The School of Life - A place that tries to answer the great questions of life.  
 https://www.youtube.com/user/schooloflifechannel
@@ -83,5 +83,5 @@ https://www.ted.com/talks/simon_sinek_why_good_leaders_make_you_feel_safe
 
 
 
-Podcasts 
+**Podcasts** 
 
