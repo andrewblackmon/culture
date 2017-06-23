@@ -1,4 +1,5 @@
 **Team dynamics** 
+
 We have leaders at TBT, but our leaders are expected to give their team members the freedom to self-manage. Our leaders are able to trust their team to do this, because they know that everyone they hire cares about their work, are experts at their jobs, have a high emotional intelligence, and are all working towards the same team goals. 
 
 Our team members take pride in the ownership of their work, and view it as something that is a privilege and responsibility for them to add their own unique contribution towards helping the company towards it's higher purpose.  
@@ -6,6 +7,7 @@ Our team members take pride in the ownership of their work, and view it as somet
 We know that if one of our leaders were to go out on leave, or take an extended period of time off, that anyone within the department would be able to take over their leader’s responsibilities while they were out. 
 
 **What we expect out of our leaders** 
+
 Our leaders hire people who are smarter than themselves. They sincerely care about the people who work on their teams, and they strive to understand who their team members are inside and outside of work. They communicate truthfully even about the most complex situations or issues, and invest time to consistently give their team transparent context about what’s happening within their department and the company. 
 
 TBT leaders are fearless, confident and have the ability to problem solve things they've never done before on their own. Whether it's repairing a leaking pipe or figuring out a technical issue. When a problem comes up, we don't hire consultants or outside contractors (unless is absolutely necessary) we solve it ourselves. This helps us to fully understand the issue, learn from it, and ensure it doesn't happen again. 
