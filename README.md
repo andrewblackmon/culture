@@ -5,7 +5,7 @@ Culture encompasses what we do, why we do it, and how we work together. The Blac
 You will see that building confidence is a major theme in this document. Everything we do is in an effort to help our employees and customers show up as their best.  
 
 ## Sections
-* [What we do & why we do it](https://github.com/andrewblackmon/culture/blob/master/purpose-vision-mission.md)
+* [Purpose, Vision, Mission](https://github.com/andrewblackmon/culture/blob/master/purpose-vision-mission.md)
 * [The foundation of how we work together](https://github.com/andrewblackmon/culture/blob/master/the-foundation-of-our-culture.md)
 * [How we work together](https://github.com/andrewblackmon/culture/blob/master/how-we-work-together.md)
 * [How we communicate](https://github.com/andrewblackmon/culture/blob/master/communication.md)
