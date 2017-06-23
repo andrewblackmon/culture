@@ -1,5 +1,3 @@
-Our leaders 
-
 **Team dynamics** 
 We have leaders at TBT, but our leaders are expected to give their team members the freedom to self-manage. Our leaders are able to trust their team to do this, because they know that everyone they hire cares about their work, are experts at their jobs, have a high emotional intelligence, and are all working towards the same team goals. 
 
