@@ -63,8 +63,15 @@ We provide our regular full-time salaried team members a monthly cell phone reim
 We don't offer this reimbursement to everyone on the team, since there are certain roles that don't require as frequent communication once you're out of the office. Every role in the company has different job requirements, and depdending on your responsibilities, it may not be necessary for you to access your email or phone while outside of work.
 
 **Employee Discounts**
+We want you all to enjoy TBTs products and feel free to rent them whenever you like. If you're a full-time team member, then you can rent TBT apparel free of charge. You can rent for your significant others at no cost as well. 
 
+You can share discounts with your friends & family as well. 
 
+* 40% off for immediate family
+* 20% off for friends: you have 10 of these to give out in total (including groomsmen)
+* 10% off for anyone you like
+
+ All orders should be placed at least 2 weeks in advance, and you'll need to pay the shipping costs for your order. Also, keep in mind, that during busy season, we may have to deny your rental requests, if we ever need the inventory for a customer.
 
 **Culture initiatives**
 
