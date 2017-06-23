@@ -12,7 +12,7 @@ You will see that building confidence is a major theme in this document. Everyth
 * [Values we look for in our team](https://github.com/andrewblackmon/culture/blob/master/values-we-look-for.md)
 * [How we lead](https://github.com/andrewblackmon/culture/blob/master/how-we-lead.md)
 * [Benefits](https://github.com/andrewblackmon/culture/blob/master/benefits.md)
-* [Flexible-work-hours](https://github.com/andrewblackmon/culture/blob/master/Flexible-work-hours.md)
+* [Flexible work hours](https://github.com/andrewblackmon/culture/blob/master/Flexible-work-hours.md)
 * [Compensation](https://github.com/andrewblackmon/culture/blob/master/compensation.md)
 * [Budgets and expenses](https://github.com/andrewblackmon/culture/blob/master/budgets-and-expenses.md)
 * [Giving back](https://github.com/andrewblackmon/culture/blob/master/giving-back.md)
