@@ -10,6 +10,8 @@ We all make mistakes and work to learn from them. Failures should not be hidden,
  
 The key to success is learning from the ups and downs. We share with one another our struggles, failures, and sacrifices as these are the only way to make us stronger, more compassionate, and grateful at everything we do in life.
 
+We are fearless, confident and have the ability to problem solve things that we have never done before on our own. Whether it's repairing a leaking pipe or figuring out a technical issue. When a problem comes up, we don't hire consultants or outside contractors (unless is absolutely necessary) we solve the issue ourselves. This helps us to fully understand the problem, learn from it, and ensure it doesn't happen again. 
+
 Strategy 
 
 We view the organization as a living system where we’re all working towards a purpose of building confidence in our customers for life's biggest moments. We believe in a sensing and responding approach rather than predicting and controlling method across all departments. We have long-term plans, targets, and budgets - but they are felxible. Our strategy is to have a clear intent for where we’re going with an outline of guidelines of how we’ll get there. We believe that if we plan too much for the future, then we stop paying attention to reality of what is actually happening. By making fast iterations, we will progress much faster and smoothly toward our purpose. 
@@ -24,6 +26,10 @@ We share our ideas about how to make things better. Everyone at every level is c
  
 We never put each other down, or complain without providing an alternative solution. Complaining just to complain is unhelpful, unproductive, and solves nothing.
 
-Responsibility and accountability
+**Responsibility and accountability**
 
-Our duty extends beyond our own roles to how our actions can benefit the company as a whole. If others are not upholding their roles, we need to respectfully encourage them to continue to work for the collective benefit.
+Our team members take pride in the ownership of their work, and view it as something that is a privilege and responsibility for them to add their own unique contribution towards helping the company work towards it's higher purpose.  
+
+Our duty extends beyond our own roles to how our actions can benefit the company as a whole. If others are not upholding their roles, we need to respectfully encourage them to continue to work for the collective benefit of the team.
+
+
