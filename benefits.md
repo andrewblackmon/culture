@@ -1,5 +1,5 @@
  
-Each benefit we offer is in the best interest of TBT and our team members. We are thoughtful and strategic about every event, perk, class, and benefit we offer, and we only roll out meaningful perks that are in line with our company culture and values.
+Each benefit we offer is in the best interest of TBT and our team members. We are thoughtful and strategic about every event, perk, class, and benefit we offer, and we only roll-out meaningful perks that are in line with our company culture and values.
 
 **Health Benefits** 
 
@@ -13,7 +13,7 @@ Other details:
 Heath Insurance
 * Kaiser HMO 20: 100% covered for individual and 50% for dependents
 * Blue Shield HMO 20: 85% covered for individual and 50% for dependents
-* Blue Shield PPO 500: Buy up option from BSCA HMO Plan
+* Blue Shield PPO 500: Buy up option from the above BSCA HMO Plan
  
 Dental Insurance
 * Cigna Dental PPO: 100% covered for individual and 50% for dependents
@@ -29,7 +29,7 @@ Vision
 
 We provide a 401(k) plan through Betterment. Betterment is an easy to use online service that helps with fund allocation for your 401(k) investments. TBT covers the admin fees for everyone who participates in the plan. 
 
-401(k)s are one of the best ways to save for your retirement. It’s only available through your employer, and it’s tax-advantaged and allows you to contribute pre-tax dollars to stocks and bonds. By saving money in a 401(k), your money will be able to grow tax-deferred, meaning the money you invest now has an even better chance to grow over time. 
+401(k)s are one of the best ways to save for your retirement. It’s only available through your employer, and it’s tax-advantaged and allows you to contribute pre-tax dollars to stocks and bonds. By saving money in a 401(k), your money will be able to grow tax-deferred, meaning the money you invest now will grow even faster. 
 
 We auto enroll all employees to defer 3% of their salary per pay check. However, you can change your deferral amount, or decline to participate in the plan at anytime by accessing your online Betterment account. It will just take 1 pay cycle for the contribution change to take effect within payroll. 
 
@@ -40,20 +40,20 @@ It has an annual contribution limit of $18,000 per year. There is an additional 
 **Perks** 
 
 Friday lunch 
-Every Friday, we order lunch for the team from local restaurants. Send us your restaurant recommendations! We try to cater for all types of dietary restrictions. It’s provided to make us more efficient and unify the team. We encourage everyone to all eat together in the common area, and to try to sit with new team members to get to know everyone in the company. We want everyone to learn what each other is working on, and who they are on a personal level.
+Every Friday, we order lunch for the team from local restaurants. Send us your restaurant recommendations! We try to cater for all types of dietary restrictions. It’s provided to make us more efficient and unify the team. We encourage everyone to eat together in the common area, and to try to sit with new team members to get to know everyone in the company. We want everyone to learn what each other is working on, and who they are, on a personal level.
 
 **Snacks and beverages**
-We offer complimentary beverages and snacks so you won’t go hungry during the day, or have to make another trip to the store during the day.  
+We offer complimentary beverages and snacks so you won’t go hungry during the day, or have to make another trip to the store.
 
 **Dry cleaning and tailoring** 
 We offer dry cleaning and tailoring services to everyone on the team. By brining it in-house, we hope to eliminate one less chore for you to worry about outside of work, help you save on costs, and help you take care of your clothes, so you feel your best! 
 
-We'll dry clean and tailor any of your casual clothing items, shirts, pants, jackets, blazers, suits, casual dresses, etc. We just won't be able to do this for your home goods, extravegant clothing, or your family and friends clothing items. You'll need to cover the cost of these fancy items on your own, and bring them to a dry cleaner of your choice. Think of it this way, if you were to bring in a ball gown or bed comforter to the dry cleaners on your own, you know it would be much more expensive than doing it for a simple button down shirt. 
+We'll dry clean and tailor any of your casual clothing items, shirts, pants, jackets, blazers, suits, casual dresses, etc. We just won't be able to do this for your home goods, extravegant clothing, or your family and friends clothing items. You'll need to cover the cost of these items on your own, and bring them to a dry cleaner of your choice.  
 
 We know you'll use your best judgement here. 
 
 **Paid parking**
-Santa Monica is a crowded city, and parking in the area can be somewhat of nightmare. Almost all parking near our office locations are paid parking lots. For anyone on the team who's working out of the Santa Monica offices, you'll be reimbursed for your pakring or LA public metro transportaion costs of up to a max of $10 per day. 
+Santa Monica is a crowded city, and parking in the area can be somewhat of nightmare. Almost all parking near our office locations is paid parking lots. For anyone on the team who's working out of the Santa Monica offices, you'll be reimbursed for your parking or LA public metro transportaion costs of up to a max of $10 per day. 
 
 We hope this helps to make your commute and parking woes a little less painful. 
 
