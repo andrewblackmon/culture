@@ -39,13 +39,20 @@ It has an annual contribution limit of $18,000 per year. There is an additional 
 
 **Perks** 
 
-Friday lunch 
+**Stock options**
+
+We believe that everyone on the team deserves to receive a portion of ownership in the company. Part of the benefit of working at TBT is that you’re given stock options and have a stake in the company. When the company does well, you will do well.
+
+**Friday lunch** 
+
 Every Friday, we order lunch for the team from local restaurants. Send us your restaurant recommendations! We try to cater for all types of dietary restrictions. It’s provided to make us more efficient and unify the team. We encourage everyone to eat together in the common area, and to try to sit with new team members to get to know everyone in the company. We want everyone to learn what each other is working on, and who they are, on a personal level.
 
 **Snacks and beverages**
+
 We offer complimentary beverages and snacks so you won’t go hungry during the day, or have to make another trip to the store.
 
 **Dry cleaning and tailoring** 
+
 We offer dry cleaning and tailoring services to everyone on the team. By brining it in-house, we hope to eliminate one less chore for you to worry about outside of work, help you save on costs, and help you take care of your clothes, so you feel your best! 
 
 We'll dry clean and tailor any of your casual clothing items, shirts, pants, jackets, blazers, suits, casual dresses, etc. We just won't be able to do this for your home goods, extravegant clothing, or your family and friends clothing items. You'll need to cover the cost of these items on your own, and bring them to a dry cleaner of your choice.  
@@ -53,16 +60,19 @@ We'll dry clean and tailor any of your casual clothing items, shirts, pants, jac
 We know you'll use your best judgement here. 
 
 **Paid parking**
+
 Santa Monica is a crowded city, and parking in the area can be somewhat of nightmare. Almost all parking near our office locations is paid parking lots. For anyone on the team who's working out of the Santa Monica offices, you'll be reimbursed for your parking or LA public metro transportaion costs of up to a max of $10 per day. 
 
 We hope this helps to make your commute and parking woes a little less painful. 
 
 **Cell Phone Reimbursement**
+
 We provide our regular full-time salaried team members a monthly cell phone reimbursement of up to $60 per month. We do this since we don't have desk phones, and we're frequently on our phones communicating with team members when we're outside of the office. 
 
 We don't offer this reimbursement to everyone on the team, since there are certain roles that don't require as frequent communication once you're out of the office. Every role in the company has different job requirements, and depdending on your responsibilities, it may not be necessary for you to access your email or phone while outside of work.
 
 **Employee Discounts**
+
 We want you all to enjoy TBTs products and feel free to rent them whenever you like. If you're a full-time team member, then you can rent TBT apparel free of charge. You can rent for your significant others at no cost as well. 
 
 You can share discounts with your friends & family as well. 
