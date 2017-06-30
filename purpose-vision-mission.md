@@ -12,7 +12,5 @@ The story is  simple. Andrew and Pat needed to rent a tux for Andrew's wedding i
 5. Creating a trusted and socially relevant brand
 
 
-**Our Mission** (in the short term) is to bring this experience to as many customers as possible, making us the most recognizable (and loved) suit & tuxedo rental brand.
-
-In the long term, our mission is expand from rentals to all of formalwear (rental & sales) making us the most recognizable (and loved) formalwear brand.
+**Our Mission** is to be the globally recognized leader in men's formalwear.
 
