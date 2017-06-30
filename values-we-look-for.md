@@ -4,9 +4,9 @@ It is very important that we find and create a team of people who fundamtntally 
 
 We honor commitments to each other and our customers. We know our stuff, and if we don’t, we know that too. We ask questions to fully understand what’s required, step up to address issues, and lend a hand where needed. But at the end of the day we answer for our own actions. We see things through.
 
-**People who sweat the small things.**
+**People who sweat and get the small things.**
 
-We have high expectations and standards. We know that every choice, no matter how small, is a chance to reflect our values. But we don’t let it paralyze us.
+We have high expectations and standards. We know that every choice, no matter how small, is a chance to reflect our values. But we don’t let it paralyze us. We not only care about the details, we understand why they are important to the overall mission of the business.
 
 **People who want to explore everything.**
 
