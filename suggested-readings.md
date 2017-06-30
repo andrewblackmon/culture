@@ -1,17 +1,17 @@
-## **Articles** 
+## **Articles/Links** 
 
-First Principle Thinking
-https://waitbutwhy.com/2015/11/the-cook-and-the-chef-musks-secret-sauce.html
+* [First Principle Thinking](https://waitbutwhy.com/2015/11/the-cook-and-the-chef-musks-secret-sauce.html)
+* [Principles, by Ray Dalio](https://benperove.com/wp-content/uploads/2014/12/principles.pdf)
+* [Blood Orange](https://www.youtube.com/watch?v=DfZMvTHJLUs)
 
 
-**Books** 
+
+## **Books** 
 
 
 **Health and Emotional Intelligence**
 
 Great Thinkers - The School of Life 
-
-The power of now - Eckhart Tolle 
 
 The four agreements - Don Miguel Ruiz 
 
