@@ -36,7 +36,7 @@ Our duty extends beyond our own roles to how our actions can benefit the company
  
 No one can read your mind. It’s up to you to speak to the leader in your department about your needs. Here are a few examples: if you want more responsibility, you’re running behind on a deadline, you’ve made a mistake, you’re unhappy with communication, you want mentorship, you want to learn a new skill, you need help, you want feedback on what you’re doing well or can improve. These are just some of the topics that your manager wants to know about and can help you with, and it's on you to ask. 
 
-**If you aren't the right fit*
+**If you aren't the right fit**
 
 If you dont know, then you know.
 
