@@ -4,7 +4,7 @@ We bring our whole authentic selves to work and let everyone contribute in their
  
 We believe in communcating with a high level of self-awareness by monitoring our own emotions, preferences, limitations, strengths, and impulses. We use this information to guide our thinking and actions. We are all equals. We value each other's differences and points of view.
 
-**Candid honesty**
+**Altruistic honesty**
 
 We practice candid honesty with each other. Being truthful and straightforward is the only way to know where we stand, what we’re doing well, and what we can improve on. Honesty will ensure the success of our own individual growth and the success of the company. 
  
