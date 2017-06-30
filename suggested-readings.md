@@ -1,4 +1,10 @@
-## **Books** 
+## **Articles** 
+
+First Principle Thinking
+https://waitbutwhy.com/2015/11/the-cook-and-the-chef-musks-secret-sauce.html
+
+
+**Books** 
 
 
 **Health and Emotional Intelligence**
@@ -17,8 +23,6 @@ Search Inside Yourself - Chade-Meng Tan
 
 The Power of Habit - Charles Duhigg 
 
-First Principle Thinking  
-https://waitbutwhy.com/2015/11/the-cook-and-the-chef-musks-secret-sauce.html
 
 
 
