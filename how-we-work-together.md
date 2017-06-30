@@ -44,4 +44,4 @@ We hold each other accountable in order to protect the culture. We are all respo
 
 There are of course the obvious ways to be let go (harrassment, intoxication, violence, attendance, illegal activities, failure to do job requirements, etc). One of the easiest ways to not be the right fit for the team, is by making bad decisions without seeking advice from the right people. We don’t keep people with bad judgment. We don’t allow people to abuse TBTs freedoms and perks. We don’t keep people who don’t take initiative, are intolerant of change, abuse company money, show intolerance of others, are inflexible, participate in mean spirited gossip, breach company values, or who are constantly negative about the company.
 
-It is extremely important that we all make the often challenging decisions to hold eachother to these highr bars.
+If our organization is a human body, we must have a strong immune system. The entire organization should know when somebody is not a fit to the culture, and should be willing to take the steps to address it.
