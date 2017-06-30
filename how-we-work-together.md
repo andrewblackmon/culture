@@ -20,7 +20,7 @@ We view the organization as a living system where we’re all working towards a 
 
 Every action and decision we make has a direct effect on our culture and our success. We encourage everyone on the team to share their opinions and help make decisions for the company, but this must be done under two conditions: 1.) you seek consultation from experts of the topic, and 2.) you get input from the people who are impacted by the decision. We believe that people are smarter when they use their collective intelligence to make decisions. Not all decisions must come to a consensus, but the opinions of others must be considered.
 
-**Provide alternative solutions**
+**Be solution-oriented** 
 
 We share our ideas about how to make things better. Everyone at every level is curious, asks questions, and has alternative solutions and suggestions that they share with their team members. We do this in a constructive, non emotional, and not hurtful way, and we know our limits. We do this to make us better.
  
