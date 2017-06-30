@@ -1,6 +1,6 @@
 **Communicating with Emotional Intelligence**
 
-We bring our whole authentic selves to work and let everyone contribute in their own unique way. Everyone on the team, including leaders, are encouraged to show up as their whole self and not just bring their “professional’ side to work. This means bringing your caring, authentic, and vulnerable sides to work, and always speaking the truth. By bringing this side of your personality, we believe you will bring more passion, energy, and creativity to your work.
+We bring our whole authentic selves to work and let everyone contribute in their own unique way. Everyone on the team, including leaders, are encouraged to show up as their whole self and not just bring their “professional’ side to work. This means bringing your fun, caring, authentic, and vulnerable sides to work, and always speaking the truth. By bringing this side of your personality, we believe you will bring more passion, energy, and creativity to your work.
  
 We believe in communcating with a high level of self-awareness by monitoring our own emotions, preferences, limitations, strengths, and impulses. We use this information to guide our thinking and actions. We are all equals. We value each other's differences and points of view.
 
