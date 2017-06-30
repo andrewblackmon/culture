@@ -35,3 +35,13 @@ Our duty extends beyond our own roles to how our actions can benefit the company
 **Managing up**
  
 No one can read your mind. It’s up to you to speak to the leader in your department about your needs. Here are a few examples: if you want more responsibility, you’re running behind on a deadline, you’ve made a mistake, you’re unhappy with communication, you want mentorship, you want to learn a new skill, you need help, you want feedback on what you’re doing well or can improve. These are just some of the topics that your manager wants to know about and can help you with, and it's on you to ask. 
+
+**If you aren't the right fit*
+
+If you dont know, then you know.
+
+We hold each other accountable in order to protect the culture. We are all responsible for our own behaviors and actions, and we have no one to blame but ourselves if we’re not performing. 
+
+There are of course the obvious ways to be let go (harrassment, intoxication, violence, attendance, illegal activities, failure to do job requirements, etc). One of the easiest ways to not be the right fit for the team, is by making bad decisions without seeking advice from the right people. We don’t keep people with bad judgment. We don’t allow people to abuse TBTs freedoms and perks. We don’t keep people who don’t take initiative, are intolerant of change, abuse company money, show intolerance of others, are inflexible, participate in mean spirited gossip, breach company values, or who are constantly negative about the company.
+
+It is extremely important that we all make the often challenging decisions to hold eachother to these highr bars.
