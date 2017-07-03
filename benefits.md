@@ -41,7 +41,7 @@ It has an annual contribution limit of $18,000 per year. There is an additional 
 
 **Stock options**
 
-We believe that everyone on the team deserves to receive a portion of ownership in the company. Part of the benefit of working at TBT is that you’re given stock options and have a stake in the company. When the company does well, you will do well.
+We believe that our full-time team members deserve to receive a portion of ownership in the company. Part of the benefit of working at TBT is that you’re given stock options and have a stake in the company. When the company does well, you will do well.
 
 **Friday lunch** 
 
