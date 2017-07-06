@@ -10,7 +10,7 @@ We all make mistakes and work to learn from them. Failures should not be hidden,
  
 The key to success is learning from the ups and downs. We share with one another our struggles, failures, and sacrifices as these are the only way to make us stronger, more compassionate, and grateful at everything we do in life.
 
-We are fearless, confident and have the ability to problem solve things that we have never done before on our own. Whether it's repairing a leaking pipe or figuring out a technical issue. When a problem comes up, we don't hire consultants or outside contractors (unless is absolutely necessary and the project requires an extremely specalized knowledge on a short-term project) we solve the issue ourselves. This helps us to fully understand the problem, learn from it, and ensure it doesn't happen again. 
+We are fearless, confident and have the ability to problem solve things that we have never done before on our own. Whether it's repairing a leaking pipe or figuring out a technical issue. When a problem comes up, we don't hire consultants or outside contractors (unless is absolutely necessary and the project requires an extremely specialized knowledge on a short-term project) we solve the issue ourselves. This helps us to fully understand the problem, learn from it, and ensure it doesn't happen again. 
 
 **Strategy** 
 
