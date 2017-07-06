@@ -93,6 +93,8 @@ We encourage people to form groups and take online courses, trainings, or read b
  
 Groups with more than 3 people will be required to host trainings and to give a talk about the new skills you’ve learned. This is not meant to test course completion. This process is informal and meant to encourage knowledge sharing and keep everyone curious and constantly learning new topics.  
 
+Connect with your team about the courses you'd like to take. If there's joint interest in a course, and it's affordable, connect with your manager about it to see if TBT can help cover the cost. 
+
 **Dogs**
 
 In an effort to help our team members bring their whole selves to work, we allow well-behaved dogs to join their owners in the Santa Monica office. Just make sure your dog is safe for a work enviornment, they're not left to wander around the office on their own, they're potty trained, and they aren't frequently crying, growling, or barking in the office. 
