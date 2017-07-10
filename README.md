@@ -20,4 +20,3 @@ As you read through the culture book, you may notice some values, communication 
 * [Who does what](https://github.com/andrewblackmon/culture/blob/master/who-does-what.md)
 * [Other details](https://github.com/andrewblackmon/culture/blob/master/other-details.md)
 * [Suggested readings](https://github.com/andrewblackmon/culture/blob/master/suggested-readings.md)
-* [FAQ](https://github.com/andrewblackmon/culture/blob/master/FAQ.md)
