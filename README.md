@@ -17,6 +17,7 @@ As you read through the culture book, you may notice some values, communication 
 * [Compensation](https://github.com/andrewblackmon/culture/blob/master/compensation.md)
 * [Budgets and expenses](https://github.com/andrewblackmon/culture/blob/master/budgets-and-expenses.md)
 * [Giving back](https://github.com/andrewblackmon/culture/blob/master/giving-back.md)
+* [Variety of different roles](https://github.com/andrewblackmon/culture/blob/master/variety-of-different-roles.md)
 * [Who does what](https://github.com/andrewblackmon/culture/blob/master/who-does-what.md)
 * [Other details](https://github.com/andrewblackmon/culture/blob/master/other-details.md)
 * [Suggested readings](https://github.com/andrewblackmon/culture/blob/master/suggested-readings.md)
