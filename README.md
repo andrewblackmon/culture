@@ -4,6 +4,8 @@ Culture encompasses what we do, why we do it, and how we work together. The Blac
   
 You will see that building confidence is a major theme in this document. Everything we do is in an effort to help our employees and customers show up as their best.  
 
+As you read through the culture book, you may notice some values, communication styles, or tactics that you’re not currently practicing. That’s okay, however, we feel you should take the time to adopt these approaches and values. We know you can’t change yourself overnight, but it is possible to grow. It will take practice and a concerted effort to make these new concepts a habit. 
+
 ## Sections
 * [Purpose, vision, mission](https://github.com/andrewblackmon/culture/blob/master/purpose-vision-mission.md)
 * [Foundational beliefs](https://github.com/andrewblackmon/culture/blob/master/the-foundation-of-our-culture.md)
