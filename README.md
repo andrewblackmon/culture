@@ -20,3 +20,5 @@ You will see that building confidence is a major theme in this document. Everyth
 * [Who does what](https://github.com/andrewblackmon/culture/blob/master/who-does-what.md)
 * [Other details](https://github.com/andrewblackmon/culture/blob/master/other-details.md)
 * [Suggested readings](https://github.com/andrewblackmon/culture/blob/master/suggested-readings.md)
+* [Where our culture is headed](https://github.com/andrewblackmon/culture/blob/master/where-our-culture-is-headed.md)
+* [The End](https://github.com/andrewblackmon/culture/blob/master/the-end.md)
