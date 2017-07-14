@@ -53,9 +53,9 @@ We offer complimentary beverages and snacks so you won’t go hungry during the 
 
 **Dry cleaning and tailoring** 
 
-We offer dry cleaning and tailoring services to everyone on the team. By brining it in-house, we hope to eliminate one less chore for you to worry about outside of work, help you save on costs, and help you take care of your clothes, so you feel your best! 
+We offer dry cleaning and tailoring services to everyone on the team. By brining it in-house, we hope to eliminate one less chore for you to worry about outside of work, help you save on costs, and help you take care of your clothes, so you feel your best!
 
-We'll dry clean and tailor any of your casual clothing items, shirts, pants, jackets, blazers, suits, casual dresses, etc. We just won't be able to do this for your home goods, extravegant clothing, or your family and friends clothing items. You'll need to cover the cost of these items on your own, and bring them to a dry cleaner of your choice.  
+We'll dry clean and tailor any of your casual clothing items, shirts, pants, jackets, blazers, suits, casual dresses, etc. We just won't be able to do this for your home goods, extravagant clothing, or your family and friend’s clothing items.
 
 We know you'll use your best judgement here. 
 
@@ -103,6 +103,6 @@ As a dog owner, you sometimes tune out your own pups noises and personality quar
 
 For more details about this, our doggie owners can check out our Playbook. 
 
-**Confronting the brutal facts**
+**Human rights issues**
 
-We take a stance and action on human rights issues. The events of the world might seem distant, but we have a responsibility to stay educated, informed, curious, and compassionate about what is happening worldwide. In an effort to stay current and active, we have employee-run groups and culture initiatives that focus on environmental issues, human rights, diversity, LGBTQ rights, animal rights, health, immigrant rights, unconscious biases, womens rights and much more. 
+We take a stance and action on human rights issues. The events of the world might seem distant, but we have a responsibility to stay educated, informed, curious, and compassionate about what is happening worldwide. In an effort to stay current and active, we have employee-run groups and culture initiatives that focus on environmental issues, human rights, diversity, LGBTQ rights, animal rights, health, immigrant rights, unconscious biases, women's rights and much more.
