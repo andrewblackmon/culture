@@ -4,6 +4,7 @@
 * [Principles](https://benperove.com/wp-content/uploads/2014/12/principles.pdf)
 * [Blood Orange](https://www.youtube.com/watch?v=DfZMvTHJLUs)
 * [The School of Life Channel](https://www.youtube.com/user/schooloflifechannel)
+* [How to get more courage](https://www.youtube.com/watch?v=mVmao6D4EqQ)
 * [Millennials in the workplace](https://www.youtube.com/watch?v=hER0Qp6QJNU)
 * [The happy secret to better work](https://www.ted.com/talks/shawn_achor_the_happy_secret_to_better_work)
 * [First why and then trust](https://www.youtube.com/watch?v=4VdO7LuoBzM)
