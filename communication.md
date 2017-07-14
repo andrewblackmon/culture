@@ -20,4 +20,4 @@ During your conversation, we ensure that our feedback is coming from a place of 
 
 If you can’t find a resolution after your conversation, then bring in a trusted manager, colleague, or someone from the Talent team as a mediator. If mediation fails, bring in a different topic-relevant colleague or a manager to help shape an agreement. 
 
-At times, conflicts will be very serious in nature and will need outside help from the begining. 
+At times, conflicts will be very serious in nature and will need outside help from the beginning. 
