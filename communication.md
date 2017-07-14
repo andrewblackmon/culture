@@ -1,14 +1,14 @@
 **Communicating with Emotional Intelligence**
 
-We bring our whole authentic selves to work and let everyone contribute in their own unique way. Everyone on the team, including leaders, are encouraged to show up as their whole self and not just bring their “professional’ side to work. This means bringing your fun, weird, caring, authentic, and vulnerable sides to work, and always speaking the truth. By bringing this side of your personality, we believe you will bring more passion, energy, and creativity to your work.
- 
-We believe in communcating with a high level of self-awareness by monitoring our own emotions, preferences, limitations, strengths, and impulses. We use this information to guide our thinking and actions. We are all equals. We value each other's differences and points of view.
+We bring our whole authentic selves to work and let everyone contribute in their own unique way. Everyone on the team, including leaders, are encouraged to show up as their whole self and not just bring their “professional” side to work. This means bringing your fun, weird, caring, authentic, and vulnerable sides to work, and always speaking the truth. By bringing this side of your personality, we believe you will bring more passion, energy, and creativity to your work.
 
-**Altruistic honesty**
+We believe in communicating with a high level of self-awareness by monitoring our own emotions, preferences, limitations, strengths, and impulses. We use this information to guide our thinking and actions. We are all equals. We value each other's differences and points of view.
 
-We practice candid honesty with each other. Being truthful and straightforward is the only way to know where we stand, what we’re doing well, and what we can improve on. Honesty will ensure the success of our own individual growth and the success of the company. 
- 
-If we aren’t honest with each other, then we’ll miss out on exchanging great ideas, hearing one anothers’ perspectives, improving ourselves, and understanding on another's needs.
+**Radical Candor**
+
+We practice extreme honesty with each other. Being truthful and straightforward is the only way to know where we stand, what we’re doing well, and what we can improve on. Honesty will ensure the success of our own individual growth and the success of the company.
+
+If we aren’t honest with each other, then we’ll miss out on exchanging great ideas, hearing one another's’ perspectives, improving ourselves, and understanding on another's needs.
 
 **Feedback and Conflict Resolution**
 
