@@ -102,7 +102,3 @@ In an effort to help our team members bring their whole selves to work, we allow
 As a dog owner, you sometimes tune out your own pups noises and personality quarks, but keep in mind that it's not always easy for your team members to do the same. Try putting yourself in someone elses shoes, if your dog is frequently making loud noises, then they might not be the right fit to be in the office. Remain objective and use your best judgement here. Think of it like a crying baby sitting next to you on the airplane. You feel bad for the baby, and for the parent caring for the child, but the loud crying noises and screams in your ear isn't the most relaxing experience for you to listen to on your flight. 
 
 For more details about this, our doggie owners can check out our Playbook. 
-
-**Human rights issues**
-
-We take a stance and action on human rights issues. The events of the world might seem distant, but we have a responsibility to stay educated, informed, curious, and compassionate about what is happening worldwide. In an effort to stay current and active, we have employee-run groups and culture initiatives that focus on environmental issues, human rights, diversity, LGBTQ rights, animal rights, health, immigrant rights, unconscious biases, women's rights and much more.
