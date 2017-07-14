@@ -8,6 +8,6 @@ We all collaborate with one another regardless of title. We offer each other sug
 
 This approach may be very different from our current practices. To avoid confusion and disruption to the stability of our teams, we’ll be rolling out this new approach to job duties and team structures slowly, department by department.  
 
-To understand more about the origin about our new approach to management and jobs roles, check out this Ted talk by Brian Robertson on *[Holacracy](https://www.youtube.com/watch?v=tJxfJGo-vkI). 
+To understand more about the origin about our new approach to management and jobs roles, check out this Ted talk by Brian Robertson on [Holacracy](https://www.youtube.com/watch?v=tJxfJGo-vkI). 
  
 Keep in mind that we’ll be implementing our own version of a Holacracy-like approach that won’t be the exact same as outlined in this talk. 
