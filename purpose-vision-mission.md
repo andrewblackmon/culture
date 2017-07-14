@@ -1,7 +1,6 @@
 **Our Purpose** is to give people confidence for life's most important moments.
 
-The story is  simple. Andrew and Pat needed to rent a tux for Andrew's wedding in 2013. The only options to do so were inconveneint, low quality, and from brands that they did not connect with. Come wedding day, they both looked and felt terrible. They decided that people should not feel this way, especially on biggest days of their lives. 
-
+The story is simple. Andrew and Pat needed to rent tuxedos for Andrew's wedding in 2013. The only options to do so were inconvenient, low quality, and from brands that they did not connect with. Come wedding day, they both looked and felt terrible. They decided that people should not feel this way, especially on the biggest days of their lives.
 
 **Our Vision** is to transform the entire experience by...
 
