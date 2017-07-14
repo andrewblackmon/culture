@@ -13,3 +13,5 @@ The story is simple. Andrew and Pat needed to rent tuxedos for Andrew's wedding 
 
 **Our Mission** is to be the globally recognized leader in men's formalwear.
 
+For more details about our vision, mission, and customer, check out our Brand Exploration book [here](https://www.dropbox.com/s/l8ybg0p5tyen7rs/20170614_TBT_BrandExploration.pdf?dl=0).  
+
