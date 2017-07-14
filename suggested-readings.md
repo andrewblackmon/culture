@@ -1,14 +1,14 @@
 ## **Articles/Links** 
 
 * [First Principle Thinking](https://waitbutwhy.com/2015/11/the-cook-and-the-chef-musks-secret-sauce.html)
-* [Principles, by Ray Dalio](https://benperove.com/wp-content/uploads/2014/12/principles.pdf)
+* [Principles](https://benperove.com/wp-content/uploads/2014/12/principles.pdf)
 * [Blood Orange](https://www.youtube.com/watch?v=DfZMvTHJLUs)
 * [The School of Life Channel](https://www.youtube.com/user/schooloflifechannel)
 * [Millennials in the workplace](https://www.youtube.com/watch?v=hER0Qp6QJNU)
 * [The happy secret to better work](https://www.ted.com/talks/shawn_achor_the_happy_secret_to_better_work)
-* [First Why and then trust](https://www.youtube.com/watch?v=4VdO7LuoBzM)
+* [First why and then trust](https://www.youtube.com/watch?v=4VdO7LuoBzM)
 * [The power of passion and perseverance](https://www.ted.com/talks/angela_lee_duckworth_grit_the_power_of_passion_and_perseverance)
-* [The Puzzle of Motivation](https://www.ted.com/talks/dan_pink_on_motivation)
+* [The puzzle of motivation](https://www.ted.com/talks/dan_pink_on_motivation)
 * [Why good leaders make you feel safe?](https://www.ted.com/talks/simon_sinek_why_good_leaders_make_you_feel_safe)
 
 
@@ -77,7 +77,7 @@ The Daily, news
 
 On the Media, news
 
-Radiolab, science, culture
+Radiolab, science & culture
 
 Heavyweight, human interest
 
