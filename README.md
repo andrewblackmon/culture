@@ -8,9 +8,9 @@ You will see that building confidence is a major theme in this document. Everyth
 ## Sections
 * [Purpose, vision, mission](https://github.com/andrewblackmon/culture/blob/master/purpose-vision-mission.md)
 * [Foundational beliefs](https://github.com/andrewblackmon/culture/blob/master/the-foundation-of-our-culture.md)
+* [Values we look for in our team](https://github.com/andrewblackmon/culture/blob/master/values-we-look-for.md)
 * [How we work together](https://github.com/andrewblackmon/culture/blob/master/how-we-work-together.md)
 * [How we communicate](https://github.com/andrewblackmon/culture/blob/master/communication.md)
-* [Values we look for in our team](https://github.com/andrewblackmon/culture/blob/master/values-we-look-for.md)
 * [Recruiting and career development](https://github.com/andrewblackmon/culture/blob/master/recruiting-and-career-development.md)
 * [Benefits](https://github.com/andrewblackmon/culture/blob/master/benefits.md)
 * [Flexible work hours](https://github.com/andrewblackmon/culture/blob/master/Flexible-work-hours.md)
