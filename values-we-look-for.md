@@ -1,4 +1,4 @@
-It is very important that we find and create a team of people who fundamtntally share our core beliefs. Here are the qualities of the people who we have found align with best with our cultural vision. These are the values hiring, firing and promotion decisions based on.  
+It is very important that we find and create a team of people who fundamentally share our core beliefs. Here are the qualities of the people who we have found align with best with our cultural vision. These are the values hiring, firing and promotion decisions based on.  
 
 **People with a sense of ownership.**
 
