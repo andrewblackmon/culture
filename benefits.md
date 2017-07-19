@@ -85,7 +85,7 @@ You can share discounts with your friends & family as well.
 
 **Culture initiatives**
 
-In support of empowering people to show up as their best, we roll out different initiatives that help to reinforce our cultural ideals. You can check out a list of our current culture initiatives here: https://docs.google.com/a/theblacktux.com/document/d/1WsGpyiGWMF71KqwpSVu2rXQT--crjVZ--GBzclX_Mp8/edit?usp=sharing 
+In support of empowering people to show up as their best, we roll out different initiatives that help to reinforce our cultural ideals. You can check out a list of our current culture initiatives [here](https://docs.google.com/a/theblacktux.com/document/d/1WsGpyiGWMF71KqwpSVu2rXQT--crjVZ--GBzclX_Mp8/edit?usp=sharing)
 
 **Trainings and classes**
  
