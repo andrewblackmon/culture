@@ -53,7 +53,7 @@ We offer complimentary beverages and snacks so you won’t go hungry during the 
 
 **Dry cleaning and tailoring** 
 
-We offer dry cleaning and tailoring services to everyone on the team. By brining it in-house, we hope to eliminate one less chore for you to worry about outside of work, help you save on costs, and help you take care of your clothes, so you feel your best!
+We offer dry cleaning and tailoring services to everyone on the team. By bringing it in-house, we hope to eliminate one less chore for you to worry about outside of work, help you save on costs, and help you take care of your clothes, so you feel your best!
 
 We'll dry clean and tailor any of your casual clothing items, shirts, pants, jackets, blazers, suits, casual dresses, etc. We just won't be able to do this for your home goods, extravagant clothing, or your family and friend’s clothing items.
 
