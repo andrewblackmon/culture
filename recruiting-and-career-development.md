@@ -21,12 +21,12 @@ Here’s how it works:
 
 Customer care full-time referrals
  
-If you refer someone for a full-time Customer Care role, and they get hired and stay with The Black Tux for 90 days, you will receive a $300 gift card.
+* If you refer someone for a full-time Customer Care role, and they get hired and stay with The Black Tux for 90 days, you will receive a $300 gift card.
  
 For part-time and warehouse referrals
 
-If you refer someone for a seasonal or part-time Retail or Customer Care role, and they get hired and stay with The Black Tux for 30 days, you’ll receive a $150 gift card.
+* If you refer someone for a seasonal or part-time Retail or Customer Care role, and they get hired and stay with The Black Tux for 30 days, you’ll receive a $150 gift card.
  
-If you refer anyone for a temporary Warehouse Floor Associate role, and they get hired and stay with The Black Tux for 30 days, you will receive a $50 gift card.
+* If you refer anyone for a temporary Warehouse Floor Associate role, and they get hired and stay with The Black Tux for 30 days, you will receive a $50 gift card.
 
 Please submit all referral resumes to the Talent & People Department at talent@theblacktux.com.
