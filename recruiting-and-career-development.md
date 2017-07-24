@@ -5,7 +5,7 @@ We pride ourselves on hiring smart, adventurous, and passionate people, and we w
 
 Here’s how it works: 
  
-*The Black Tux will cover the cost of a round-trip flight anywhere in the world with the successful placement of a referred full-time employee.
+⋅⋅⋅The Black Tux will cover the cost of a round-trip flight anywhere in the world with the successful placement of a referred full-time employee.⋅⋅
 *Total trip value cannot exceed $5,000 for all technical roles (engineering and QA), and/or $2,000 for all non-technical roles (manager level and above)
 *The referral bonus can be used after the new employee has completed their 90th day of employment
 *Internships and contractor positions are not eligible
