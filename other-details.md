@@ -12,6 +12,8 @@ Try to be on time for all meetings. If you’re late for a meeting, notify the m
  
 Our office space is an open floor plan. No one has an office. We don’t practice a strict hierarchical structure here. We have a fluid work environment where everyone can approach their colleges to ask questions, voice their ideas, or just stop by to check in and see how their teammate is doing. It is important that we are all mindful of one another as we share a large space, so it's important to be considerate regarding noise, cleanliness, barking dogs, and other unpleasant sounds.
 
+Treat our space as if it were your own home, and help out your coworkers out when they need an extra hand. If there were boxes piling up at your front door at home, you wouldn’t leave them. If you had dirty dishes in your sink, you’d clean them. Likewise at TBT, if there are tasks that need to be done to help out a team member or in our space, chip in and help out.
+
 **Human rights issues**
 
 We take a stance and action on human rights issues. The events of the world might seem distant, but we have a responsibility to stay educated, informed, curious, and compassionate about what is happening worldwide. In an effort to stay current and active, we have employee-run groups and culture initiatives that focus on environmental issues, human rights, diversity, LGBTQ rights, animal rights, health, immigrant rights, unconscious biases, women's rights and much more.
