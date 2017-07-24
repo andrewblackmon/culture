@@ -15,3 +15,10 @@ Our office space is an open floor plan. No one has an office. We don’t practic
 **Human rights issues**
 
 We take a stance and action on human rights issues. The events of the world might seem distant, but we have a responsibility to stay educated, informed, curious, and compassionate about what is happening worldwide. In an effort to stay current and active, we have employee-run groups and culture initiatives that focus on environmental issues, human rights, diversity, LGBTQ rights, animal rights, health, immigrant rights, unconscious biases, women's rights and much more.
+
+**Work Attire**
+We encourage everyone to dress in a way that represents their own unique self. Our work environment is casual, and we allow jeans, t-shirts, and sneakers. Just keep in mind that we’re a professional workplace too, and expect everyone to use their best judgement when choosing what to wear to work. Try to avoid outfits that you'd wear to sleep, the beach, a workout class, while lounging around the house, or in Las Vegas.
+
+For example, don’t wear flip flops, sweat pants, sagging pants, yoga pants, old beat up shoes, see-through clothing, or overly revealing / tight clothing like short shorts, and extra low tops and dresses. 
+
+We want to dress in a way that represents The Black Tux as a casual and stylish, yet professional work environment. 
