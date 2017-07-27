@@ -14,8 +14,8 @@ There may come a time when you need to take an extended amount of time off for a
 
 The Black Tux Child Bonding Pay
 
-If you’re becoming a new mom or dad, you better take some much needed time off to spend time with your family! TBT supports every full-time team member in doing this by allowing you to take up to six (6) weeks off of paid time off to bond with your new baby. This means you can take off for the birth, adoption, and/or fostering of your new child.  
+If you’re becoming a new mom or dad, you better take some much needed time off to spend time with your family! TBT supports every full-time team member in doing this by allowing you to take up to six (6) weeks of paid time off to bond with your new baby. This means you can take off for the birth, adoption, and/or fostering of your new child.  
 
 You’re not required to take the full six weeks to receive this benefit. We just ask that you take the time off within 12 months from the date of the birth or placement of your child, and that the time off is taken in at least 1 week increments. 
 
-Before you take time off, contact the Talent & People Department to find out all of the details about leaves and the benefits that are available to you. 
+Before you take time off, contact the Talent & People Department to find out the details about the benefits available to you.
