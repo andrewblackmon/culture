@@ -18,15 +18,3 @@ Our goal is to measure success by output, not input. Expectations from managers 
 It’s a balance, and it will be different for all of us—depending on our job functions, personalities, or even California labor laws, the amount of time we spend out of the office, on our own schedules, or on vacation will vary greatly. For some of us, those dependencies will limit flexibility in these areas, and in that case we hope other aspects of the culture make this the place you want to work. 
 
 The bottom line is that we hire people to fit our culture and be excellent at their job. We are flexible with where and when they do this.
-
-**Leaves**
-
-There may come a time when you need to take an extended amount of time off, for a leave of absence. We trust you to use your best judgement and take a leave when you need to. Before taking time off, check the Playbook (posted on BambooHR) to understand if you qualify for a leave, and then connect with the Talent team to discuss the details. 
-
-The Black Tux Child Bonding Pay
-
-If you’re becoming a new mom or dad, you better take some much needed time off to spend time with your family! TBT supports every full-time team member in doing this by allowing you to take up to six (6) weeks of paid time off to bond with your new baby. This means you can take off for the birth, adoption, and/or fostering of your new child.  
-
-You’re not required to take the full six weeks to receive this benefit. We just ask that you take the time off within 12 months from the date of the birth or placement of your child, and that the time off is taken in at least 1 week increments. 
-
-Before you take time off, contact the Talent & People Department to find out the details about the benefits available to you.
