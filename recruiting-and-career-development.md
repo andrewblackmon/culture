@@ -1,13 +1,10 @@
 **Recruiting**
 
-Our culture is the operating system and foundation of our company, and it’s developed from the personalities of the people we hire. Due to that, we take hiring for our team very seriously, and we take our time to hire the best possible people for each role.
-
 We view recruiting as a partnership between the hiring manager and team members within the department. The recruiter, hiring manager, and team members on the interview panel are all equally accountable for helping to interview and hire the best possible candidates.
 
-We’re all in this together. It’s on all of us to help hire the right people for our team, whether that’s done through referrals, attending meetups, networking, or interviewing new applicants for an open role.
-Our team values skills, ability to do the job, and cultural fit all equally, and we look for candidates who have a balance of all of these things. For example, we’d never hire someone who had the skills to do the job, but who was arrogant, mean, and wasn’t a good cultural fit.
+Our team values skills, ability to do the job, and cultural fit all equally, and we look for candidates who have a balance of all of these things. This means we will sometimes pass on people who have an excellent skillset, but are not a cultural fit to the company.
 
-We also make an effort to try to avoid bias practices in the way we hire, promote, and interact with our team members. We’ve developed strategies to help eliminate unconscious bias that allow us to hire inclusive and effective teams. Here are a few of the ways we do this:
+We also make an effort to avoid bias in the way we hire, promote, and interact with our team members. We’ve developed strategies to help eliminate unconscious bias that allow us to hire inclusive and effective teams. Here are a few of the ways we do this:
 
 * Every employee must go through interview training before he/she interviews any outside candidates
 * We interview and hire applicants of all backgrounds, orientations, expressions, and identities
@@ -17,7 +14,7 @@ We also make an effort to try to avoid bias practices in the way we hire, promot
 * Sourcing candidates from diverse schools and backgrounds
 * Limiting information about the candidate when reviewing resumes
 * Making hiring decisions based on facts and articulating specific reasons for passing on candidates
-* Not sharing our feelings about candidates we’ve interviewed until after everyone has had a chance to interview them
+* Not sharing our opinions about candidates we’ve interviewed until after everyone has had a chance to interview them
 
 **Career Development**
 
