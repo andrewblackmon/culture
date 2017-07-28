@@ -1,7 +1,24 @@
 **Recruiting**
 
-[Add]
+Our culture is the operating system and foundation of our company, and it’s developed from the personalities of the people we hire. Due to that, we take hiring for our team very seriously, and we take our time to hire the best possible people for each role.
 
+We view recruiting as a partnership between the hiring manager and team members within the department. The recruiter, hiring manager, and team members on the interview panel are all equally accountable for helping to interview and hire the best possible candidates.
+
+We’re all in this together, and it’s on all of us to help hire the right people for our team. Whether that’s done through referrals, attending meetups, networking, or interviewing candidates for an  open role. 
+
+Our team values skills, ability to do the job, and cultural fit all equally, and we look for candidates who have a balance of all of these things. For example, we’d never hire someone who had the skills to do the job, but who was arrogant, mean, and wasn’t a good cultural fit.
+
+We make an effort to try to avoid bias practices in the way we hire, promote, and interact with our team members. We’ve developed strategies to help eliminate unconscious bias that allow us to hire inclusive and effective teams. Here are a few of the ways we do this: 
+
+* Every employee must go through interview training before he/she interviews any outside candidates
+* We interview and hire applicants of all backgrounds, orientations, expressions, and identities
+* Creating inclusive job descriptions
+* Assigning specific interview questions to ask candidates
+* Having set “culture" interview questions that we ask everyone
+* Sourcing candidates from diverse schools and backgrounds
+* Limiting information about the candidate when reviewing resumes
+* Make hiring decisions based on facts and articulating specific reasons for passing on candidates
+* Not sharing our feelings about candidates we’ve interviewed until after everyone has had a chance to interview them
 
 **Career Development**
 
