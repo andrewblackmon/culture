@@ -15,6 +15,6 @@ You can find a list of suggestions [here](https://docs.google.com/a/theblacktux.
 
 We pride ourselves on hiring honest, interesting, curious, and emotionally intelligent people. We would like to continue to attract like-minded talent, and to encourage this, we've created a referral policy where we cover the cost of your round-trip flight to anywhere in the world for you and a +1 when you refer a friend who's hired by TBT for a full-time technical or manager level role.
 
-We offer different type of referral bonuses for customer care, warehouse floor temps, and intern roles as well. 
+We offer different types of referral bonuses for customer care, warehouse floor temps, and intern roles as well.
 
-Check out the Playbook for more details. 
+Check out the Playbook for more details.
