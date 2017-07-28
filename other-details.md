@@ -20,6 +20,4 @@ We take a stance and action on human rights issues. The events of the world migh
 
 **Work Attire**
 
-We encourage everyone to dress in a way that represents their own unique self. Our work environment is casual, and we allow jeans, t-shirts, and sneakers. Just keep in mind that we’re a professional workplace too, and we expect everyone to use their best judgement when choosing what to wear to work. Try to avoid outfits that you'd wear to sleep, the beach, a workout class, while lounging around the house, or when going out in Las Vegas.
-
-For example, don’t wear flip flops, sweat pants, sagging pants, yoga pants, old beat up shoes, see-through clothing, or overly revealing / tight clothing like short-shorts, extra low tops, or dresses. 
+We encourage everyone to dress in a way that represents their own unique self. With that, please remember that we’re a professional workplace and we expect everyone to use their best judgement. You work with other people, and your clothing should not distract them. Try to avoid outfits that you'd wear to sleep, the beach, a workout class, while lounging around the house, or when going out in Las Vegas. 
