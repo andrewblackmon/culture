@@ -1,16 +1,27 @@
 **Flexible work hours**
  
-We don’t focus on how many hours and days you work. We hire everyone to be efficient with their time and get their work done, so that there are no negative impacts on others. We are all working to make the company successful, and we support each other in every obstacle, struggle, and triumph. In times of urgency, you may need to stay late, or work on a weekend day. We take care of our people and will never abuse this, but we expect you to understand that putting in this extra time may be necessary. Accomplishing our mission will sometimes require late nights and going the extra mile - we want a team of people who are excited to do this when necessary, because they understand the impact.
+Much of our culture is designed around the premise that happy people are more productive, and that everyone works in their own way. That’s why our policies around work flexibility deserve special mention. 
 
-If you feel you’re more productive working from home sometimes, then connect with your manager about making this happen. When you work from home, we expect you to be responsive, attend all of your scheduled meetings, and be as productive as you are while at the office. For some of us, working from home may make us less productive, or not even be a possibility given the nature of our work, and we need to admit this to ourselves. Know your limits, and understand your job responsibilities.
+We don’t care how many hours a week you work, where you get your work done from, and how much time you take off each year provided your choices about each of those things meet the following criteria: 
 
-We’re flexible with people taking time off to enjoy life! We take a responsible amount of time off each year to experience new adventures, relax, or spend time with loved ones. Everyone’s reasons for needing time off are their own, we just ask that you let your manager and team members know and get your work covered while you’re out. We use our best judgement to know how much time off is too much time off. We all love our freedom, and we never abuse this privilege. Please check out the Playbook for more details on taking paid time off.
+* You are performing all the responsibilities of your job
+* It doesn’t affect anyone else negatively
+* Your manager knows about it
+* Your choices are in alignment with our values 
+
+Those are big concepts and in some ways the ultimate expression of the culture we want to create: a balance between freedom, accountability, and self-awareness.  
+
+This isn’t new, but we’re doubling down on it. And it’s a risk, because if these policies get abused it means a couple things: we aren’t communicating our values clearly, we’re not upholding them as a community, we’re hiring the wrong people, and/or we’re managing poorly. So we really want this to work. 
+
+Our goal is to measure success by output, not input. Expectations from managers should be clear (if they’re not, ask for clarity). The ability to take an afternoon off to join a last minute hiking trip goes hand in hand with the responsibility to work late on a project with a hard deadline. The ability to work from home occasionally goes hand in hand with the responsibility to attend certain meetings in person or travel for work if your job requires it. 
+
+It’s a balance, and it will be different for all of us—depending on our job functions, personalities, or even California labor laws, the amount of time we spend out of the office, on our own schedules, or on vacation will vary greatly. For some of us, those dependencies will limit flexibility in these areas, and in that case we hope other aspects of the culture make this the place you want to work. 
 
 The bottom line is that we hire people to fit our culture and be excellent at their job. We are flexible with where and when they do this.
 
 **Leaves**
 
-There may come a time when you need to take an extended amount of time off for a leave of absence. We trust you to use your best judgement and take a leave when you need to. Before taking off, check the Playbook (posted on BambooHR) to understand if you qualify for a leave, and then connect with the Talent to discuss the details. 
+There may come a time when you need to take an extended amount of time off, for a leave of absence. We trust you to use your best judgement and take a leave when you need to. Before taking time off, check the Playbook (posted on BambooHR) to understand if you qualify for a leave, and then connect with the Talent team to discuss the details. 
 
 The Black Tux Child Bonding Pay
 
