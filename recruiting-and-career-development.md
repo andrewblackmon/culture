@@ -21,9 +21,11 @@ We also make an effort to try to avoid bias practices in the way we hire, promot
 
 **Career Development**
 
-The development in your career is based on your own intrinsic motivation, hard work, dedication, and curiosity to learn. We all need to take personal responsibility for our career development, and help ourselves learn new skills that we find interesting.
+Part of each manager’s job is to take interest in their teams personal growth by coaching them, giving them meaningful work, guiding them to discover themselves (strengths, weaknesses, blind spots, etc), surrounding them with exceptionally intelligent coworkers, and keeping them engaged and motivated. 
 
-No company will ever have enough growth or upward mobility opportunities for everyone on the team, so we celebrate when someone on the team leaves for a bigger job that we didn’t have available to offer them internally. We genuinely care about our team members and want the best for them whether it’s at TBT or somewhere else.
+Career development is not only the responsibility of the manager, but it is something that everyone on the team must own for themselves. Your development in your career is largely based on your own intrinsic motivation, hard work, dedication, and curiosity to learn. We all need to own our own career development, and help ourselves learn new skills that we find interesting. 
+
+No company will ever have enough growth or upward mobility opportunities for everyone on the team. In which case, we celebrate when someone on the team leaves for a bigger job that we didn’t have available to offer them internally. We genuinely care about our team members and want the best for them whether it’s at TBT or somewhere else. 
 
 You can find a list of suggestions [here](https://docs.google.com/a/theblacktux.com/document/d/12wy_jJs7D6T48x5NMIH_KNDEoglSS7HoLIRhPP8WPb4/edit?usp=sharing) on some ways to manage your career development. 
 
