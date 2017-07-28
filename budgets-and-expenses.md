@@ -12,7 +12,7 @@ Please don't hesitate to ask if you're ever unsure if an expense is within reaso
 
 **Reimbursement process**
 
-To streamline our employee reimbursement process, we use Expensify to submit our company related expenses for reimbursement. Expense reports can be submitted on a weekly or monthly basis. In order to create a culture of mutual trust, we ask that you attached receipts to all of your expense reports. Technically, the IRS only requires receipts for any expenses over $75 dollars, so if you do lose a receipt, we’ll ask you to complete a lost receipt form for the expense. A few last details: expenses should be submitted within 60 days of the expense, and after your report is submitted, you will receive a direct deposit within 7-10 business days.
+To streamline our employee reimbursement process, we use Expensify to submit our company related expenses for reimbursement. Expense reports can be submitted on a weekly or monthly basis. In order to create a culture of mutual trust, we ask that you attach receipts to all of your expense reports. Technically, the IRS only requires receipts for any expenses over $75 dollars, so if you do lose a receipt, we’ll ask you to complete a lost receipt form for the expense. A few last details: expenses should be submitted within 60 days of the expense, and after your report is submitted, you will receive a direct deposit within 7-10 business days.
 
 In support of our culture of trust, we do not require approval of company related expenses. We expect everyone on the team to use good judgement and understand what expenses are reasonable and reimbursable. For check and balance purposes, we will give managers access to their team members expense reports in case they ever need to take a look at a particular expense. 
 
@@ -22,11 +22,11 @@ Again, we don’t have specific limitations on expenses, just use your best judg
 
 When you’re traveling for work, book seats in the coach/economy section. If you book Business or First class, you’ll be asked to pay the difference between Coach and the higher fare you’ve chosen.
 
-Be reasonable with your hotel choice. We don't provide reimbursement for five star experiences, but we also don't want you to stay in a Motel 6. In most cities $200 should be enough but we understand that in certain times of the year you may have to go above that.
+Be reasonable with your hotel choice. We don't provide reimbursement for five star experiences, but we also don't want you to stay in a one star motel. In most cities $200 should be enough, but we understand that in certain times of the year, you may have to go above this price.
 
-Be reasonable with your meal expenses too. We don't provide reimbursement for meals from expensive restaurants, but we also don't want you to eat at McDonalds. In most cities $30 per meal for 3 meals per day is enough, but we understand that at certain times your dinner bill may be more expensive.  
+Be reasonable with your meal expenses too. We don't provide reimbursement for meals from expensive restaurants, but we also don't want you to feel forced to eat fast food. In most cities $30 per meal for 3 meals per day is enough, but we understand that at certain times your dinner bill may be more expensive.  
 
-For transportation, use taxis, bus services, and public transportation where possible.If you do choose to rent a vehicle, don’t rent a luxury vehicle. Also, you do not select LDW (Loss Damage Waiver) or CDW (Collision Damage Waiver), as you’re covered under TBTs insurance policy.
+For transportation, use taxis, bus services, and public transportation where possible. If you do choose to rent a vehicle, don’t rent a luxury vehicle. Also, you do not select LDW (Loss Damage Waiver) or CDW (Collision Damage Waiver), as you’re covered under TBTs insurance policy.
 
 **Company Credit Cards**
  
