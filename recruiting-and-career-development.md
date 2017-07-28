@@ -4,34 +4,33 @@ Our culture is the operating system and foundation of our company, and it’s de
 
 We view recruiting as a partnership between the hiring manager and team members within the department. The recruiter, hiring manager, and team members on the interview panel are all equally accountable for helping to interview and hire the best possible candidates.
 
-We’re all in this together, and it’s on all of us to help hire the right people for our team. Whether that’s done through referrals, attending meetups, networking, or interviewing candidates for an  open role. 
-
+We’re all in this together. It’s on all of us to help hire the right people for our team, whether that’s done through referrals, attending meetups, networking, or interviewing new applicants for an open role.
 Our team values skills, ability to do the job, and cultural fit all equally, and we look for candidates who have a balance of all of these things. For example, we’d never hire someone who had the skills to do the job, but who was arrogant, mean, and wasn’t a good cultural fit.
 
-We make an effort to try to avoid bias practices in the way we hire, promote, and interact with our team members. We’ve developed strategies to help eliminate unconscious bias that allow us to hire inclusive and effective teams. Here are a few of the ways we do this: 
+We also make an effort to try to avoid bias practices in the way we hire, promote, and interact with our team members. We’ve developed strategies to help eliminate unconscious bias that allow us to hire inclusive and effective teams. Here are a few of the ways we do this:
 
 * Every employee must go through interview training before he/she interviews any outside candidates
 * We interview and hire applicants of all backgrounds, orientations, expressions, and identities
-* Creating inclusive job descriptions
-* Assigning specific interview questions to ask candidates
+* Creating job descriptions with inclusive language 
+* Assigning a set of specific interview questions to ask candidates
 * Having set “culture" interview questions that we ask everyone
 * Sourcing candidates from diverse schools and backgrounds
 * Limiting information about the candidate when reviewing resumes
-* Make hiring decisions based on facts and articulating specific reasons for passing on candidates
+* Making hiring decisions based on facts and articulating specific reasons for passing on candidates
 * Not sharing our feelings about candidates we’ve interviewed until after everyone has had a chance to interview them
 
 **Career Development**
 
-Your development in your career is based on your own intrinsic motivation, hard work, dedication, and curiosity to learn. We all need to own our own career development, and help ourselves learn new skills that we find interesting. 
+The development in your career is based on your own intrinsic motivation, hard work, dedication, and curiosity to learn. We all need to take personal responsibility for our career development, and help ourselves learn new skills that we find interesting.
 
-No company will ever have enough growth or upward mobility opportunities for everyone on the team. In these cases, we celebrate when someone on the team leaves for a bigger job that we didn’t have available to offer them internally. We genuinely care about our team members and want the best for them whether it’s at TBT or somewhere else. 
+No company will ever have enough growth or upward mobility opportunities for everyone on the team, so we celebrate when someone on the team leaves for a bigger job that we didn’t have available to offer them internally. We genuinely care about our team members and want the best for them whether it’s at TBT or somewhere else.
 
 You can find a list of suggestions [here](https://docs.google.com/a/theblacktux.com/document/d/12wy_jJs7D6T48x5NMIH_KNDEoglSS7HoLIRhPP8WPb4/edit?usp=sharing) on some ways to manage your career development. 
 
 **Referral Bonuses**
 
-We pride ourselves on hiring honest, interesting, curious, and emotionally intelligent people. We would like to continue to attract like-minded talent, and to encourage this, we've created a referral policy where we cover the cost of your round-trip flight to anywhere in the world for you and a +1 when you refer a friend who's hired by TBT for a full-time technical or manager level role.
+We pride ourselves on hiring honest, interesting, curious, and emotionally intelligent people. We would like to continue to attract like-minded talent, and to encourage this, we've created a referral bonus policy. When you refer a friend who's hired by TBT for a full-time technical or manager level role, we'll cover the cost of your round-trip flight to anywhere in the world for you and a +1.
 
 We offer different types of referral bonuses for customer care, warehouse floor temps, and intern roles as well.
 
-Check out the Playbook for more details.
+Check out the Playbook for more specific details. 
