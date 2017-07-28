@@ -1,8 +1,7 @@
 **Compensation**
 
-We pay market salary rate (50th percentile) for everyone’s role and level. We do that because we want to pay fairly, but also want people who are driven by more than money. All full-time employees are given equity in the company.
+We have two goals when it comes to compensation: pay people as much as possible within the constraints of scaling the business, and pay people equally. 
 
-Our compensation is decoupled from performance reviews, and we use market data to dictate increases, in order to ensure that we pay everyone fairly. 
+In general, we think compensation should be more science than art. Wherever possible we use comparative data to remove bias and judgement. That’s also why we decouple compensation from performance reviews—salaries and wages are determined by the experience level and expertise required for a given role in our industry, at our growth stage, and in our market. We reevaluate all of those factors—for both the company and individuals—once a year and make corrections and adjustments accordingly. 
 
-We pull compensation data from a system called AdvancedHR, which uses public and private compensation data from all major companies in our industry. The data from AdvancedHR is reviewed once per year at the beginning of each calendar year. During this time, we adjust anyone who is being paid under market rate for their role and level. Anyone who was already at market rate is instead considered for an annual cost of living increase.
-
+Compensation is also something we care about because it’s one of the best checks on the culture and mission. For every dollar you could be making somewhere else, we need to provide equal or more value to you through the intangible qualities of the business—be it freedom, meaningful work, inspiring leadership, or a path to growth—or through equity, which we give to all full-time employees. 
