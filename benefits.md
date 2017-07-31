@@ -10,7 +10,7 @@ Other details:
 * Open enrollment is in October or November every year. 
 * Domestic partners may have coverage under all of our health plans. 
 
-Heath Insurance
+Health Insurance
 * Kaiser HMO 20: 100% covered for individual and 50% for dependents
 * Blue Shield HMO 20: 85% covered for individual and 50% for dependents
 * Blue Shield PPO 500: Buy up option from the above BSCA HMO Plan
@@ -41,7 +41,7 @@ We provide a 401(k) plan through Betterment. Betterment is an easy to use online
 
 We auto enroll all employees to defer 3% of their salary per pay check. However, you can change your deferral amount, or decline to participate in the plan at anytime by accessing your online Betterment account. It will just take 1 pay cycle for the contribution change to take effect within payroll. 
 
-Any money that is contributed into your Betterment account will remain in your 401(k) until you reach 59 1/2. If it is withdrawn before age 59 1/2, you will incur a withdrawal penalty. Money deposited into a 401(k) account can not be refunded by the Company into your pay check. Remember that TBT is offering this 401(k) plan as a perk to its employees because we want to help you save, and the Company, in no way, benefits from your contributions.
+Any money that is contributed into your Betterment account will remain in your 401(k) until you reach 59 1/2. If it is withdrawn before age 59 1/2, you will incur a withdrawal penalty. Money deposited into a 401(k) account can not be refunded by the Company into your paycheck. Remember that TBT is offering this 401(k) plan as a perk to its employees because we want to help you save, and the Company, in no way, benefits from your contributions.
 
 It has an annual contribution limit of $18,000 per year. There is an additional $6,000 catch-up contribution available if the employee is 50 or older 
 
@@ -69,7 +69,7 @@ We know you'll use your best judgement here.
 
 **Paid parking**
 
-Santa Monica is a crowded city, and parking in the area can be somewhat of nightmare. Almost all parking near our office locations is paid parking lots. For anyone on the team who's working out of the Santa Monica offices, you'll be reimbursed for your parking or LA public metro transportaion costs of up to a max of $10 per day. 
+Santa Monica is a crowded city, and parking in the area can be somewhat of nightmare. Almost all parking near our office locations is paid parking lots. For anyone on the team who's working out of the Santa Monica offices, you'll be reimbursed for your parking or LA public metro transportation costs of up to a max of $10 per day. 
 
 We hope this helps to make your commute and parking woes a little less painful. 
 
@@ -77,7 +77,7 @@ We hope this helps to make your commute and parking woes a little less painful.
 
 We provide our regular full-time salaried team members a monthly cell phone reimbursement of up to $60 per month. We do this since we don't have desk phones, and we're frequently on our phones communicating with team members when we're outside of the office. 
 
-We don't offer this reimbursement to everyone on the team, since there are certain roles that don't require as frequent communication once you're out of the office. Every role in the company has different job requirements, and depdending on your responsibilities, it may not be necessary for you to access your email or phone while outside of work.
+We don't offer this reimbursement to everyone on the team, since there are certain roles that don't require as frequent communication once you're out of the office. Every role in the company has different job requirements, and depending on your responsibilities, it may not be necessary for you to access your email or phone while outside of work.
 
 **Employee Discounts**
 
@@ -93,7 +93,7 @@ You can share discounts with your friends & family as well.
 
 **Culture initiatives**
 
-In support of empowering people to show up as their best, we roll out different initiatives that help to reinforce our cultural ideals. You can check out a list of our current culture initiatives [here](https://docs.google.com/a/theblacktux.com/document/d/1WsGpyiGWMF71KqwpSVu2rXQT--crjVZ--GBzclX_Mp8/edit?usp=sharing)
+In support of empowering people to show up as their best, we roll out different initiatives that help to reinforce our cultural ideals. You can check out a list of our current culture initiatives [here](https://docs.google.com/a/theblacktux.com/document/d/1WsGpyiGWMF71KqwpSVu2rXQT--crjVZ--GBzclX_Mp8/edit?usp=sharing).
 
 **Trainings and classes**
  
@@ -105,8 +105,8 @@ Connect with your team about the courses you'd like to take. If there's joint in
 
 **Dogs**
 
-In an effort to help our team members bring their whole selves to work, we allow well-behaved dogs to join their owners in the Santa Monica office. Just make sure your dog is safe for a work enviornment, they're not left to wander around the office on their own, they're potty trained, and they aren't frequently crying, growling, or barking in the office. 
+In an effort to help our team members bring their whole selves to work, we allow well-behaved dogs to join their owners in the Santa Monica office. Just make sure your dog is safe for a work environment, they're not left to wander around the office on their own, they're potty trained, and they aren't frequently crying, growling, or barking in the office. 
 
-As a dog owner, you sometimes tune out your own pups noises and personality quarks, but keep in mind that it's not always easy for your team members to do the same. Try putting yourself in someone elses shoes, if your dog is frequently making loud noises, then they might not be the right fit to be in the office. Remain objective and use your best judgement here. Think of it like a crying baby sitting next to you on the airplane. You feel bad for the baby, and for the parent caring for the child, but the loud crying noises and screams in your ear isn't the most relaxing experience for you to listen to on your flight. 
+As a dog owner, you sometimes tune out your own pups noises and personality quirks, but keep in mind that it's not always easy for your team members to do the same. Try putting yourself in someone else's shoes, if your dog is frequently making loud noises, then they might not be the right fit to be in the office. Remain objective and use your best judgement here. Think of it like a crying baby sitting next to you on the airplane. You feel bad for the baby, and for the parent caring for the child, but the loud crying noises and screams in your ear isn't the most relaxing experience for you to listen to on your flight. 
 
 For more details about this, our doggie owners can check out our Playbook. 
