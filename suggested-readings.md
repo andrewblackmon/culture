@@ -48,7 +48,7 @@ The Lean Startup - Eric Ries
 
 Zero to one - Peter Thiel 
 
-Orginals: How Non-Conformists Move the World - Adam Grant 
+Originals: How Nonconformists Move the World - Adam Grant 
 
 
 **Company Culture** 
