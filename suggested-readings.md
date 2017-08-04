@@ -1,6 +1,6 @@
 A lot of our ideas were inspired by this book which we highly recommend everyone read: 
 
-**Reinventing Organizations** - Frederic Laloux  
+* [Reinventing Organizations](https://www.amazon.com/Reinventing-Organizations-Frederic-Laloux/dp/2960133501)
   
     
 
