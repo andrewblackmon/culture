@@ -10,6 +10,7 @@ A lot of our ideas were inspired by this book which we highly recommend everyone
 * [Principles by Ray Dalio](https://benperove.com/wp-content/uploads/2014/12/principles.pdf)
 * [Blood Orange](https://www.youtube.com/watch?v=DfZMvTHJLUs)
 * [Radical Candor - The Surprising Secret to Being a Good Boss](http://firstround.com/review/radical-candor-the-surprising-secret-to-being-a-good-boss/)
+* [Anything and everything on this website](https://www.waitbutwhy.com)
 * [The School of Life Channel](https://www.youtube.com/user/schooloflifechannel)
 * [How to get more courage](https://www.youtube.com/watch?v=mVmao6D4EqQ)
 * [Millennials in the workplace](https://www.youtube.com/watch?v=hER0Qp6QJNU)
@@ -18,7 +19,6 @@ A lot of our ideas were inspired by this book which we highly recommend everyone
 * [The power of passion and perseverance](https://www.ted.com/talks/angela_lee_duckworth_grit_the_power_of_passion_and_perseverance)
 * [The puzzle of motivation](https://www.ted.com/talks/dan_pink_on_motivation)
 * [Why good leaders make you feel safe?](https://www.ted.com/talks/simon_sinek_why_good_leaders_make_you_feel_safe)
-* [Anything and everything on this website](https://www.waitbutwhy.com)
 
 
 ## **Books**
