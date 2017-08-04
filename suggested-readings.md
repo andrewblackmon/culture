@@ -7,7 +7,7 @@ A lot of our ideas were inspired by this book which we highly recommend everyone
 ## **Articles/Links** 
 
 * [First Principle Thinking](https://waitbutwhy.com/2015/11/the-cook-and-the-chef-musks-secret-sauce.html)
-* [Principles](https://benperove.com/wp-content/uploads/2014/12/principles.pdf)
+* [Principles by Ray Dalio](https://benperove.com/wp-content/uploads/2014/12/principles.pdf)
 * [Blood Orange](https://www.youtube.com/watch?v=DfZMvTHJLUs)
 * [Radical Candor - The Surprising Secret to Being a Good Boss](http://firstround.com/review/radical-candor-the-surprising-secret-to-being-a-good-boss/)
 * [The School of Life Channel](https://www.youtube.com/user/schooloflifechannel)
