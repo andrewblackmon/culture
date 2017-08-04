@@ -27,7 +27,7 @@ A lot of our ideas were inspired by this book which we highly recommend everyone
 
 Great Thinkers - The School of Life 
 
-The four agreements - Don Miguel Ruiz 
+The Four Agreements - Don Miguel Ruiz 
 
 The Untethered Soul - Michael Singer 
 
