@@ -1,3 +1,9 @@
+A lot of our ideas were inspired by this book which we highly recommend everyone read: 
+
+**Reinventing Organizations** - Frederic Laloux  
+  
+    
+
 ## **Articles/Links** 
 
 * [First Principle Thinking](https://waitbutwhy.com/2015/11/the-cook-and-the-chef-musks-secret-sauce.html)
@@ -15,14 +21,7 @@
 * [Holacracy](https://www.youtube.com/watch?v=tJxfJGo-vkI)
 
 
-## **Books** 
-
-A lot of our ideas were inspired by this book which we highly recommend everyone read: 
-
-**Reinventing Organizations** - Frederic Laloux  
-
-
-
+## **Books**
 
 **Health and Emotional Intelligence**
 
