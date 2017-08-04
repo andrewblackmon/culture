@@ -17,6 +17,8 @@
 
 ## **Books** 
 
+A lot of our ideas were inspired by this book which we highly recommend everyone read: Reinventing Organizations - Frederic Laloux
+
 
 **Health and Emotional Intelligence**
 
