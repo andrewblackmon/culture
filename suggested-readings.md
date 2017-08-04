@@ -45,11 +45,11 @@ Creativity Inc - Ed Catmull
 Drive - Daniel Pink 
 
 Give and take - Adam Grant 
+  
+Good To Great - Jim Collins  
 
 
 **Entrepreneurship**
-
-The Lean Startup - Eric Ries 
 
 Zero to one - Peter Thiel 
 
