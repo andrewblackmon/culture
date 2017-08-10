@@ -8,7 +8,7 @@ We believe in communicating with a high level of self-awareness by monitoring ou
 
 We practice extreme honesty with each other. Being truthful and straightforward is the only way to know where we stand, what we’re doing well, and what we can improve on. Honesty will ensure the success of our own individual growth and the success of the company.
 
-If we aren’t honest with each other, then we’ll miss out on exchanging great ideas, hearing one another's’ perspectives, improving ourselves, and understanding on another's needs.
+If we aren’t honest with each other, then we’ll miss out on exchanging great ideas, hearing one another's’ perspectives, improving ourselves, and understanding one another's needs.
 
 **Feedback and Conflict Resolution**
 
