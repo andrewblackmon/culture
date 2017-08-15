@@ -4,6 +4,12 @@ In support of our culture of trust, and in order for us all to make the best pos
 
 Our culture is not built on fear or suspicion, so there is no need to hide any “bad results” from one another. We all make mistakes, and we expect everyone to own up to these mistakes and find solutions to improve the situation. This approach forces us to grow and face reality.
 
+**Diversity**
+
+We believe in inclusive hiring and have several practices in place to ensure we get the most diverse group of qualified candidates for our team. The unique backgrounds and viewpoints that our employees provide produce well-rounded and effective teams. 
+
+We believe in empowering people to show up as their best and most authentic versions of themselves at work. In order to foster this behavior, we believe in creating a culture of belongingness. Some of the ways we reinforce this, is by the type of team activities we plan, our recruitment philosophies, our open office space, encouraging everyone at every level within the company to speak their minds, and equal gender pay. We also encourage employee-run groups and events that allow people to honor and recognize diversity in the workplace.  
+
 **Mistakes & Learning**
 
 We all make mistakes and work to learn from them. Failures should not be hidden, but discussed as a way for the group to learn how to avoid future pitfalls. Constructive feedback should not be taken as an affront, but as a guide for further personal growth.
