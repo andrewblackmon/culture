@@ -19,6 +19,7 @@ A lot of our ideas were inspired by this book which we highly recommend everyone
 * [The power of passion and perseverance](https://www.ted.com/talks/angela_lee_duckworth_grit_the_power_of_passion_and_perseverance)
 * [The puzzle of motivation](https://www.ted.com/talks/dan_pink_on_motivation)
 * [Why good leaders make you feel safe?](https://www.ted.com/talks/simon_sinek_why_good_leaders_make_you_feel_safe)
+* [What is emotional intelligence](https://www.youtube.com/watch?v=LgUCyWhJf6s&feature=em-subs_digest)
 
 
 ## **Books**
