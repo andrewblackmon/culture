@@ -14,7 +14,7 @@ Please don't hesitate to ask if you're ever unsure if an expense is within reaso
 
 To streamline our employee reimbursement process, we use Expensify to submit our company related expenses for reimbursement. Expense reports can be submitted on a weekly or monthly basis. In order to create a culture of mutual trust, we ask that you attach receipts to all of your expense reports. Technically, the IRS only requires receipts for any expenses over $75 dollars, so if you do lose a receipt, we’ll ask you to complete a lost receipt form for the expense. A few last details: expenses should be submitted within 60 days of the expense, and after your report is submitted, you will receive a direct deposit within 7-10 business days.
 
-We do not require approval of company related expenses. We expect everyone on the team to use good judgement and understand what expenses are reasonable and reimbursable. For check and balance purposes, we will give managers access to their team members expense reports in case they ever need to take a look at a particular expense. 
+We do not require manager approval of company related expenses. We expect everyone on the team to use good judgement and understand what expenses are reasonable and reimbursable. For check and balance purposes, we will give managers access to their team members expense reports in case they ever need to take a look at a particular expense. 
 
 **Travel expenses**
 
