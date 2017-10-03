@@ -18,3 +18,15 @@ Our goal is to measure success by output, not input. Expectations from managers 
 It’s a balance, and it will be different for all of us—depending on our job functions, personalities, or even California labor laws, the amount of time we spend out of the office, on our own schedules, or on vacation will vary greatly. For some of us, those dependencies will limit flexibility in these areas, and in that case we hope other aspects of the culture make this the place you want to work. For still others, there may come a time where life circumstances require an extended leave of absence that will come into conflict with your job responsibilities. It is always our goal to be supportive and understanding, and are open to such leaves on a case by case basis.
 
 The bottom line is that we hire people to fit our culture and be excellent at their job. We are flexible with where and when they do this.
+
+**Attendance guidelines**
+
+We view attendance, and showing up to work on time, as an mandatory requirement of everyone's job and a reflection of their overall work performance. As part of our culture of trust, freedom, and accountability, everyone is responsible for showing up to work at the required time.
+
+Every department manages fundamentally different areas of the business, of which have varying job requirements. We can't all have the same flexibilities with our work schedules, and departments with set specific work schedules, need to be at work, clocked in, and ready to work at the start of their scheduled shift. 
+
+Our goal isn't to treat each other unfairly, but we all need to own our individual day-to-day accountabilities, and understand the requirements of our jobs. 
+
+Unplanned absences and lateness have a huge impact on business operations, it affects your teammates, our customers, and the team's overall productivity. If you're unable to attend work due to an extreme and rare circumstance (illness, emergency, or unexpected event that requires you to take time off on short notice), you need to give your direct supervisor a heads up, as soon as possible. This should not be a frequent event, in typical circumstances. 
+
+We want to be as transparent and honest with you about our thoughts on attendance, and if you’re excessively late you will be terminated.
