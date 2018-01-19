@@ -89,7 +89,7 @@ You can share discounts with your friends & family as well.
 * 20% off for friends: you have 10 of these to give out in total (including groomsmen)
 * 10% off for anyone you like
 
- All orders should be placed at least 2 weeks in advance, and you'll need to pay the shipping costs for your order. Also, keep in mind, that during busy season, we may have to deny your rental requests, if we ever need the inventory for a customer.
+ All orders should be placed at least 2 weeks in advance, and you'll need to pay the $5 shipping costs for your order at checkout. Also, keep in mind, that during busy season, we may have to deny your rental requests, if we ever need the inventory for a customer.
 
 **Culture initiatives**
 
