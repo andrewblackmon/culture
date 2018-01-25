@@ -4,11 +4,11 @@ The story is simple. Andrew and Pat needed to rent tuxedos for Andrew's wedding 
 
 **Our Vision** is to transform the entire experience by...
 
-1. Elevating the style and fit of rental garments
-2. Creating a modern convenient user experience
-3. Providing concierge like personal service
-4. Empowering customers through meaningful content
-5. Creating a trusted and socially relevant brand
+1. Elevating the style and fit of rental garments - We believe incredible fit and timeless style should be accessible.
+2. Creating a modern convenient user experience - We believe we can create an online experience that meets or exceeds peoples' expectations of a traditional in-store experience.
+3. Providing concierge like personal service - We believe the importance of life's biggest moments deserve extraordinary personal service.
+4. Empowering customers through meaningful content - We believe knowledge builds confidence to transform people into the best version of themselves.
+5. Creating a trusted and socially relevant brand - We believe we have the opportunity and responsibilty to engage with our comminuty in a meaningful way.
 
 
 **Our Mission** is to be the globally recognized leader in men's formalwear.
