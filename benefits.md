@@ -69,7 +69,7 @@ We know you'll use your best judgement here.
 
 **Paid parking**
 
-Santa Monica is a crowded city, and parking in the area can be somewhat of nightmare. Almost all parking near our office locations is paid parking lots. For anyone on the team who's working out of the Santa Monica offices, you'll be reimbursed for your parking or LA public metro transportation costs of up to a max of $10 per day. 
+Santa Monica is a crowded city, and parking in the area can be somewhat of nightmare. Almost all parking near our office locations is paid parking lots. For anyone on the team who's working out of the Santa Monica offices, you'll be reimbursed for your parking or LA public metro transportation costs of up to a max of $14 per day. 
 
 We hope this helps to make your commute and parking woes a little less painful. 
 
