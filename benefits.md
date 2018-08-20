@@ -51,6 +51,23 @@ It has an annual contribution limit of $18,000 per year. There is an additional 
 
 We believe that our full-time team members deserve to receive a portion of ownership in the company. Part of the benefit of working at TBT is that you’re given stock options and have a stake in the company. When the company does well, you will do well.
 
+**Evergreen Stock Options Program**
+
+One of the incentives of working at a startup is receiving stock options. If you stay around, we’ll make sure you always have a stake in the company and continue to vest stock options.
+ 
+Here’s how it works:
+* After your most recent stock option grant has vested for 2.5 years, we’ll provide you with a refresher grant. This is a new grant that is separate and on top of any of your previous stock option awards.
+* This means, you’ll never be within 1.5 years of being fully vested. 
+* Unlike New Hire stock option grants, the Evergreen "refresher" grant does NOT have a 1 year Cliff (a "cliff" is when 25% vests at your 1 year work anniversary).
+* Instead, Evergreen grants will vest on a monthly basis over 4 years. The vesting is done in equal vesting installments over 48 months of continuous employment.  
+We know stock option plans can be confusing. We've provided two examples below of how it could work, to give you more context.
+ 
+Example 1:
+You recently started at TBT. As apart of your offer, you were granted a New Hire stock option award. Fast forward 2.5 years later, you're still working at TBT, and you haven’t received any additional stock option grants during your time with the company. To ensure you continue to have vesting stock options, TBT will grant you a refresher grant as part of the Evergreen program. The grant amount and terms are presented at the board meeting following your anniversary date. After the board meeting, the Talent team sends you the paperwork with the details about your new grant.
+ 
+Example 2:
+You were recently hired at TBT, and given a New Hire stock option award. After working for 2 years, you're promoted from an individual contributor level role to a people manager role. As part of your promotion, you’re given an additional grant called a Promotion Stock option grant. 2.5 years after you receive the Promotion grant, you become eligible for a refresher grant, which is apart of the Evergreen program. The grant amount and terms are presented at the board meeting following your anniversary date. After the board meeting, the Talent team sends you the paperwork with the details about your new grant.
+
 **Friday lunch** 
 
 Every Friday, we order lunch for the team from local restaurants. Send us your restaurant recommendations! We try to cater for all types of dietary restrictions. It’s provided to make us more efficient and unify the team. We encourage everyone to eat together in the common area, and to try to sit with new team members to get to know everyone in the company. We want everyone to learn what each other is working on, and who they are, on a personal level.
